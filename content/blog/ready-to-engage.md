@@ -1,7 +1,7 @@
 +++
 title = "Ready to Engage"
 date = 2017-02-08T03:01:45Z
-image = "ready to engage.jpg"
+image = "ready to engage.JPG"
 draft = true
 +++
 
@@ -16,7 +16,7 @@ benefit of others.
 - Ready to give hope
 - Ready to trust
 
-Nothing of all that falls natural for anyone of us. Yet, we can intentionally work on it. Day by day, week after week. Sooner or later, this attitude will become so much part of you that you don’t need to remind yourself. 
+Nothing of all that falls natural for anyone of us. Yet, we can intentionally work on it. Day by day, week after week. Sooner or later, this attitude will become so much part of your personality you don’t need to remind yourself. 
 
 At that point, it’s no big deal anymore. Not for you.
 
