@@ -1,6 +1,6 @@
 +++
 title = "Ready to Engage"
-date = 2016-11-23T03:01:45Z
+date = 2017-02-08T03:01:45Z
 image = "wie eine gemeinde starten.jpg"
 draft = true
 +++
