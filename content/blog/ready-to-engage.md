@@ -20,4 +20,4 @@ Nothing of all that falls natural for anyone of us. Yet, we can intentionally wo
 
 Yet, others get encouraged. 
 
-And you get satisfied.
+And you satisfied.
