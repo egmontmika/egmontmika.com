@@ -30,10 +30,9 @@ We all know what fear is, however, not everybody knows how to overcome.
 
 Now, here is the challenge: 
 
-In case that fear, guilt or shame, characterize your relationship to God, 
-you might be captured inside a religious system that produces that fear. H
-indering you from loving God with all of your heart.
-Although, this is what you really want.
+In case that fear, guilt or shame, characterise your relationship to God, 
+you might be captured inside a man-made religious system that produces that fear. 
+Hindering you from loving God with all of your heart.
+Although, this is what you are really trying.
 
-In this case, wouldn't it be time for a change?
-
+In this case, wouldn't it be time to break that bondage and follow the one who truely can set you free?
