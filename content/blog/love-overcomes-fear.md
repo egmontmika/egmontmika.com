@@ -7,8 +7,8 @@ draft = true
 Fear and love don't match.
 
 One primary characteristic of virtually all religious systems around the world is fear: 
-fear of judgment, fear of curses, fear of hell, fear of punishment, fear of failing - 
-held up by some sort of religious control.
+fear of judgment, fear of curses, fear of hell, fear of punishment, fear of failing - communicated
+held up by some sort of religious authority.
 
 Sadly, this also seems to apply to a great extend to what is known as Christianity.
 
