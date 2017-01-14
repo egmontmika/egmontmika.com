@@ -10,7 +10,7 @@ One primary characteristic of virtually all religious systems around the world i
 fear of judgment, fear of curses, fear of hell, fear of punishment, fear of failing - communicated and
 held up by some sort of religious authority.
 
-Sadly, this also seems to apply to a great extend to what is known as Christianity.
+Sadly, this also can be applied within Christianity.
 
 In contrast, read the following:
 
