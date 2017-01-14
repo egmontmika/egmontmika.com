@@ -23,16 +23,16 @@ with punishment. The one who fears is not made perfect in love." (1 John 4:18 NI
 strengthen you and help you; I will uphold you with my righteous right hand." 
 (Isaiah 41:10 NIV)
 
-The Spirit of Jesus and the spirits of religion are opposed to each other. 
-While religious spirits are producing fear, his Spirit produces love that overcomes fear. 
+The Spirit of Jesus and the spirit of fear are opposed to each other. 
+The Spirit of Jesus produces love that overcomes fear. 
 
-Admitted, followers of Jesus know what fear is, just like anyone else. Yet, they 
-overcome.
+We all know what fear is, however, not everybody knows how to overcome.
 
 Now, here is the challenge: 
 
 In case that fear, guilt or shame, characterize your relationship to God, 
-you might still be captured inside a religious system, hindering you from loving God with all of your heart.
+you might be captured inside a religious system that produces that fear. H
+indering you from loving God with all of your heart.
 Although, this is what you really want.
 
 In this case, wouldn't it be time for a change?
