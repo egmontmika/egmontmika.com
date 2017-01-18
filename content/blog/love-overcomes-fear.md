@@ -25,7 +25,7 @@ strengthen you and help you; I will uphold you with my righteous right hand."
 The Spirit of Jesus and the spirit of fear are opposed to each other. 
 The Spirit of Jesus produces love that overcomes fear. 
 
-Now, here is the challenge: 
+Now, here comes the delicate question:
 
-In case that fear, guilt or shame characterise your relationship to God, don't stay there, 
-but follow the one who truely sets you free.
+If love makes us strong and able to overcome fear, what can that teach us for the art of raising children? Can there be any place for frightening or threatening a child in good pedagogics?
+
