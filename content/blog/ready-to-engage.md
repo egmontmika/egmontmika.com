@@ -16,7 +16,9 @@ benefit of others.
 - Ready to give hope
 - Ready to trust
 
-Nothing of all that falls naturally for anyone of us. Yet, we can intentionally work on it. Day by day, week after week. Sooner or later, this attitude will become so much part of your personality you don’t need to remind yourself. 
+Nothing of all that falls naturally for anyone of us. Yet, we can intentionally work on it. 
+Day by day, week after week. Sooner or later, this attitude will become so much part of your 
+personality you don’t need to remind yourself. 
 
 At that point, it’s no big deal anymore. Not for you.
 

@@ -2,13 +2,12 @@
 title = "Love Versus Fear"
 date = "2017-01-04T22:44:14Z"
 image = "love overcomes fear.jpg"
-draft = true
 +++
-Fear and love don't match.
+Love and fear don't match.
 
 One primary characteristic of virtually all religious systems around the world is fear: 
 fear of judgment, fear of curses, fear of hell, fear of punishment, fear of failing - communicated and
-held up by some sort of religious authority.
+held up by some sort of religious authority or system.
 
 Sadly, this also can be found within Christianity.
 
@@ -26,13 +25,7 @@ strengthen you and help you; I will uphold you with my righteous right hand."
 The Spirit of Jesus and the spirit of fear are opposed to each other. 
 The Spirit of Jesus produces love that overcomes fear. 
 
-We all know what fear is, however, not everybody knows how to overcome.
-
 Now, here is the challenge: 
 
-In case that fear, guilt or shame, characterise your relationship to God, 
-you might be captured inside a man-made religious system that produces that fear. 
-Hindering you from loving God with all of your heart.
-Although, this is what you are really trying.
-
-In this case, wouldn't it be time to break that bondage and follow the one who truely can set you free?
+In case that fear, guilt or shame characterise your relationship to God, don't stay there, 
+but follow the one who truely sets you free.
