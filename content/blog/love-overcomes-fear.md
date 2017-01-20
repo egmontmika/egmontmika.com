@@ -31,8 +31,10 @@ If love makes us strong and able to overcome fear, what does that insight teach 
 
 **Comments**
 
-*Sid*
+*Sid*  
+
 That is a very good question. I wonder what the spanking camp would have to say about that. I remember being pro-spanking, as that was how I was raised and believed how one raised children. I would never say my parents did not love me, but the practice that was culturally and socially accepted did create a lot of emotional damage. For them, 'sparing the rod and spoiling the child' held greater bearance. I assume this is what you are referring to?
 
 *Egmont*
+
 Yes, Sid. Although, I am aware that I will not be able to change any of the deeply rooted convictions in that direction. In Western Europe, this more extreme position that you describe is not so common among young parents, but I believe that there are all kinds of weaker variations still in use. And many a parent may despise these practices, but still slide into such a behavior, not willingly, but as an emergency reaction. This heritage is often deeper rooted inside of us as a pattern of behavior and thought than we want to acknowledge. And to get out of it requires an amount of effort over a long time.
