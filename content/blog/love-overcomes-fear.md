@@ -29,6 +29,8 @@ Having said this, here comes the delicate question:
 
 If love makes us strong and able to overcome fear, what does that insight teach us for the art of raising children? Can there be any place for frightening or threatening a child in good pedagogics?
 
+------------------------------------------------------------------------------------------------------
+
 **Comments**
 
 *Sid*  
