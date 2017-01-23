@@ -7,7 +7,7 @@ draft = true
 +++
 No use to spend hours meditating on the past regretting. 
 
-You may say that you can learn from it. Yes, but any useful lesson 
+You may say that you can learn from it. Yes, but any useful lesson from the past 
 doesn’t take more than a few seconds or maybe minutes. Anything 
 longer than that would be destructive. The past is gone, and it will 
 never come back.
