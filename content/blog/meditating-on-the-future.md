@@ -27,5 +27,5 @@ matters to you, then focus on it mentally and build your confidence.
 Later on, whenever another opportunity may pop up, you will not fall into 
 the same pit.
 
-This time you will do it better.
+This time you will do better.
 
