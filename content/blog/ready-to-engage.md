@@ -2,7 +2,6 @@
 title = "Ready to Engage"
 date = 2017-02-08T03:01:45Z
 image = "ready to engage.JPG"
-draft = true
 +++
 
 Everyday you can choose your attitude.
