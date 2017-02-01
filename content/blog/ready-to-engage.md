@@ -15,7 +15,7 @@ benefit of others.
 - Ready to give hope
 - Ready to trust
 
-Probably,  nothing of all that is quite natural for anyone of us. Yet, we can work on it. 
+Probably,  nothing of all that is quite natural to anyone of us. Yet, we can work on it. 
 Day by day, week after week. Sooner or later, this attitude will become so much part of your 
 personality you don’t need to remind yourself. 
 
