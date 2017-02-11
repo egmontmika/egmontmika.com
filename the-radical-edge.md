@@ -3,6 +3,7 @@ title = "The Radical Edge"
 date = 2017-02-22T03:01:45Z
 image = ".jpg"
 draft = true
++++
 
 Growing movements often move along a radical edge.
 
