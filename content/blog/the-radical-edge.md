@@ -7,7 +7,7 @@ draft = true
 
 Growing spiritual movements often have a radical edge.
 
-Their followers have vision and are strongly committed to their mission. They gladly step out of 
+Their followers are filled with a vision and strongly committed to their mission. They gladly step out of 
 their comfort zone, take great risks, are willing to sacrifice, and work day and night, 
 paying the price in order to fulfill that mission.
 
