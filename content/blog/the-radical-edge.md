@@ -31,7 +31,7 @@ constantly declining and finally coming to an end, resulting in total fossilisat
 Followers of Jesus have no obligation to follow such a development, even less to contribute to it. 
 
 Today, Jesus is more present and active in this world than ever before since the early days, and by his Spirit 
-he constantly moves on, pouring out his life to ever more people, creating ever more ways to fulfilll his 
+he constantly moves on, pouring out his life into ever more people, creating ever more ways to fulfilll his 
 mission - to seek and save the lost.
 
 With a radical edge, through his followers. 
