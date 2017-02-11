@@ -35,4 +35,4 @@ mission - to seek and save the lost.
 
 With a radical edge.
 
-For this he needs you and me.
+Through people like you and me.
