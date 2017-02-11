@@ -5,7 +5,7 @@ image = "the radical edge.jpg"
 draft = true
 +++
 
-Growing movements often have a radical edge.
+Growing spiritual movements often have a radical edge.
 
 Their followers have vision and are strongly committed to their mission. They gladly step out of their comfort zone, take great risks, and work day and night, paying the price in order to fulfill that mission.
 
