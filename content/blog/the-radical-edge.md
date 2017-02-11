@@ -14,9 +14,10 @@ paying the price in order to fulfill that mission.
 The first followers of Jesus became such a movement. And today they still are, that is, wherever they 
 genuinely follow Jesus.
 
-Unfortunately, large chunks of this movement became and still become watered-down over time. Thinking 
-they have been too radical, too zealous, too different from the world around them, they may feel the 
-need to become more “normal”, regarded ”decent”, more like everybody else. Trying to fit in, playing it safe. 
+Unfortunately, large chunks of this movement became and still become watered-down over time, loosing their 
+radicality and their edge. Thinking they have been too radical, too zealous, too different from the world
+ around them, they may feel the need to become more “normal”, regarded ”decent”, more like everybody else. 
+ Trying to fit in, playing it safe. 
 
 Getting established. 
 
