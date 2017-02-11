@@ -1,25 +1,28 @@
 +++
 title = "The Radical Edge"
 date = 2017-02-22T03:01:45Z
-image = ".jpg"
+image = "the radical edge.jpg"
 draft = true
 +++
 
-Growing movements often move along a radical edge.
+Growing movements often have a radical edge.
 
-Their followers have faith and are strongly committed to their purpose. They gladly step out of their comfort zone, take great risks, and work day and night. They pay the price in order to serve that purpose.
+Their followers have vision and are strongly committed to their mission. They gladly step out of their comfort zone, take great risks, and work day and night, paying the price in order to fulfill that mission.
 
-The first followers of Jesus became such a movement. And today they still are, that is, as long as they still are a Jesus movement.
+The first followers of Jesus became such a movement. And today they still are, that is, as long as they genuinely follow Jesus.
 
-Unfortunately, large chunks of this movement became and still become watered-down over time. Thinking they have been too radical, too zealous, too different from the world around them, they may feel the need to become more “normal” or ”decent”, more like everybody else. Trying to fit in.
+Unfortunately, large chunks of this movement became and still become watered-down over time. Thinking they have been too radical, too zealous, too different from the world around them, they may feel the need to become more “normal” or ”decent”, more like everybody else. Trying to fit in, playing it safe. 
 
-This results in the loss of passion and purpose. And in the loss of life.
-After that, all that remains is a shadow — an organizational frame with its positions, mechanisms and rituals, yet, without the faith and the spiritual power that made them grow in the beginning. The empty machinery goes on for a while and may survive several generations. However, its life is constantly declining and finally coming to an end.
+Getting established. 
 
-As followers of Jesus, this is not meant to be our destiny. 
+This results in the loss of passion and mission. And the loss of life. 
 
-Today, Jesus is more present in this world than ever before in history, and he constantly moves on, pouring out his life to ever more people, creating ever more ways to serve his purpose - moving along the radical edge.
+Now, all that remains is a skeleton — an institutional framework with its positions, procedures and rituals, yet, without the faith and the spiritual power that once made them grow and change the world. The  machinery still runs idle for a while and may survive several generations. However, its life is constantly declining and finally coming to an end. 
 
-Seeking and saving the lost.
+Followers of Jesus have no obligation to follow such a development, even less to contribute to it. 
 
-This is where you and I belong.
+Today, Jesus is more present in this world than ever before in history, and he constantly moves on, pouring out his life to ever more people, creating ever more ways to fulfilll his mission - to seek and save the lost.
+
+With a radical edge.
+
+Through you and me.
