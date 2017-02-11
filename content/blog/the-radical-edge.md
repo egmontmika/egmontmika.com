@@ -1,6 +1,6 @@
 +++
 title = "The Radical Edge"
-date = 2017-02-22T03:01:45Z
+date = 2017-02-15T03:01:45Z
 image = "the radical edge.jpg"
 draft = true
 +++
@@ -17,7 +17,7 @@ Getting established.
 
 This results in the loss of passion and mission. And the loss of life. 
 
-Now, all that remains is a skeleton — an institutional framework with its positions, procedures and rituals, yet, without the faith and the spiritual power that once made them grow and change the world. The  machinery still runs idle for a while and may survive several generations. However, its life is constantly declining and finally coming to an end. 
+Now, all that remains is a skeleton — an institutional framework with its positions, procedures, rituals and traditions, yet, without the faith and the spiritual power that once made them grow and change the world. The  machinery still runs idle for a while and may survive several generations. However, its life is constantly declining and finally coming to an end. 
 
 Followers of Jesus have no obligation to follow such a development, even less to contribute to it. 
 
