@@ -11,7 +11,7 @@ Their followers are filled with a vision and strongly committed to their mission
 their comfort zone, take great risks, are willing to sacrifice, and work day and night, 
 paying the price in order to fulfill that mission.
 
-The first followers of Jesus became such a movement. And today they still are, that is, as long as they 
+The first followers of Jesus became such a movement. And today they still are, that is, wherever they 
 genuinely follow Jesus.
 
 Unfortunately, large chunks of this movement became and still become watered-down over time. Thinking 
