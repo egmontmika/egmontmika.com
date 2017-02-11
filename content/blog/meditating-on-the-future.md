@@ -1,7 +1,7 @@
 
 +++
 title = "Meditating on the Future"
-date = 2017-02-15T03:01:45Z
+date = 2017-02-22T03:01:45Z
 image = "meditating on the future.jpg"
 draft = true
 +++
