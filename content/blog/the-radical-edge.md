@@ -34,6 +34,6 @@ Today, Jesus is more present and active in this world than ever before since the
 he constantly moves on, pouring out his life to ever more people, creating ever more ways to fulfilll his 
 mission - to seek and save the lost.
 
-With a radical edge.
+With a radical edge, through his followers. 
 
 Through people like you and me.
