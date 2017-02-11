@@ -7,7 +7,7 @@ draft = true
 
 Growing movements often move along a radical edge.
 
-Their followers have faith and are strongly committed to their purpose. They gladly step out of their comfort zone, take great risks, and work day and night in order to serve that purpose.
+Their followers have faith and are strongly committed to their purpose. They gladly step out of their comfort zone, take great risks, and work day and night. They pay the price in order to serve that purpose.
 
 The first followers of Jesus became such a movement. And today they still are, that is, as long as they still are a Jesus movement.
 
