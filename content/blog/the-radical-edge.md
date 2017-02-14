@@ -2,7 +2,6 @@
 title = "The Radical Edge"
 date = 2017-02-15T03:01:45Z
 image = "the radical edge.jpg"
-draft = true
 +++
 
 Growing spiritual movements often have a radical edge.
@@ -24,14 +23,14 @@ Getting established.
 This results in the loss of passion and mission. And the loss of life. 
 
 Now, all that remains is a skeleton — an institutional framework with its positions, procedures, rituals 
-and traditions, yet, without the faith and the spiritual power that once made them grow and change the world. 
+and traditions, yet, without the faith and the spiritual power that once made them grow and change their world. 
 The  machinery still runs idle for a while and may survive several generations. However, its life is 
-constantly declining and finally coming to an end, resulting in total fossilisation.
+constantly declining and finally coming to an end.
 
 Followers of Jesus have no obligation to follow such a development, even less to contribute to it. 
 
 Today, Jesus is more present and active in this world than ever before since the early days, and by his Spirit 
-he constantly moves on, pouring out his life into ever more people, creating ever more ways to fulfilll his 
+he constantly moves on, pouring out his life into ever more people, creating ever more ways to fulfill his 
 mission - to seek and save the lost.
 
 With a radical edge, through his followers. 
