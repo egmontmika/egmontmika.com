@@ -15,13 +15,13 @@ In contrast, pondering on the future can be very rewarding.
 
 The future gives you opportunities to make a better decision, find a better solution, get better results, and avoid the old mistakes. The future is filled with possibilities and choices - good choices. 
 
-That is, if you let go the past and get prepared. 
+That is, if you first let go the past. 
 
-Are you prepared?
+Did you let go?
 
-You can start your future right away - by pondering. Admitted, the actual work still needs to be done.
+You can start your future right away - by pondering on the future. Admitted, the actual work still needs to be done.
 
-Yet, pondering is a good start.
+Yet, you give yourself a good start.
 
 
 
