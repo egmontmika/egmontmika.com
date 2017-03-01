@@ -12,7 +12,7 @@ never come back.
 
 In contrast, pondering on the future can be very rewarding. 
 
-The future gives you opportunities to make a better decision, find a better solution, get better results, and avoid the old mistakes. The future is filled with possibilities and choices - good choices. 
+The future gives you the opportunity to make a better decision, find a better solution, get better results, and avoid the old mistakes. The future is filled with possibilities and choices - good choices. 
 
 That is, if you first let go the past. 
 
