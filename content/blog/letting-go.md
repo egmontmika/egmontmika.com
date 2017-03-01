@@ -3,7 +3,6 @@
 title = "Letting Go"
 date = 2017-02-22T03:01:45Z
 image = "letting go.jpg"
-
 +++
 No use to spend hours pondering on the past - regretting. 
 
