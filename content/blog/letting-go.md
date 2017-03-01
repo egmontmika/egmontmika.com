@@ -18,9 +18,9 @@ That is, if you first let go the past.
 
 Did you let go?
 
-You can start your future right away - by pondering on the future. Admitted, the actual work still needs to be done.
+You can start your future right away - by letting go and pondering on the future. Admitted, the actual work still needs to be done.
 
-Yet, you give yourself a good start.
+Yet, it's a good start.
 
 
 
