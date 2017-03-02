@@ -22,5 +22,13 @@ You can start your future right away - by letting go and pondering on the future
 
 Yet, it's a good start.
 
+--------------
+
+**Comments**
+
+*Anonym* Hej Egmont, tack för dagens inlägg, stämmer så väl, det är så lätt att fastna i det negativa man varit med om och ge det alldeles för mycket tid. Vi får kasta oss på Gud som verkligen känner till alla detaljer i våra liv och vill att vi ska bli stilla och lyssna in vad han vill säga oss. Uppskattar din blogg som har en enkelhet samtidigt som den är djup.
+
+
+
 
 
