@@ -19,7 +19,7 @@ We rather hold on to a lousy status-quo feeling safe than take a step into the u
 This is why a personal crisis can work as a door opener, but only if it 
 is deeper than our desire for comfort and stronger than our fear.
 
-In order to keep ourselves moving forward, good insights are just not enough. 
+In order to move forward, good insights are just not enough. 
 Probably we also need, from time to time, periods of destabilisation.
 
 The secret of success is to accept the crisis and make it your friend. Take
