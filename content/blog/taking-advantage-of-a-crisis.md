@@ -17,7 +17,7 @@ Not strong enough to overcome our desire for comfort and to crack our fear.
 We rather hold on to a lousy status-quo feeling safe than take a step into the unknown. 
 
 This is why a personal crisis can work as a door opener, but only if it 
-is stronger than our need for security. And stronger than our fear.
+is deeper than our desire for comfort and stronger than our fear.
 
 In order to keep ourselves moving forward, good insights are just not enough. 
 Probably we also need, from time to time, periods of destabilisation.
