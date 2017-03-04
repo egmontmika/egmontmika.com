@@ -6,7 +6,7 @@ draft = true
 +++
 
 
-You can hear an inspiring message or read a life-changing book. 
+You can hear an inspiring message. You can read a life-changing book. 
 You can get overwhelmed by a new insight. Yet, see nothing change.
 
 Why can it be like that?
