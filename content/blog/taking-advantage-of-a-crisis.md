@@ -27,6 +27,6 @@ The secret of success is to accept the crisis and make it your friend. Take
  intentionally work for a break-through. This is the time to do it. Not looking behind, 
  but focussing on the future.
 
-For moving forward, a time of crisis can be inestimably valuable. Don't let it become a stumbling stone.
+For moving forward, a time of crisis can be inestimably valuable. Don't let it become a stumbling block.
 
 Let it be a stepping stone.
