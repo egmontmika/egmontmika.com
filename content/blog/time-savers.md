@@ -23,6 +23,6 @@ What all these time savers give us is not more time but more choice. More than e
 
 Do what is right.
 
-Sadly enough, we often end up filling that time with even more time savers, morecomputer work and more car trips. Working for still more money which, in turn, enables us to buy even more time savers...
+Sadly enough, we often end up filling that time with even more time savers. More computer work and more car trips. Working for still more money which enables us to buy even more time savers...
 
 What are your choices?
