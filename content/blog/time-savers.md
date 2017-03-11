@@ -11,7 +11,7 @@ Time is limited. Time is precious. Time is running out.
 
 Civilisation, in turn, has blessed us with an abundance of time savers: dishwashers and washing machines, vacuum cleaners, lawn mowers, cars, airplanes, cellphones, computers…
 
-Where does all rather time go that we are constantly "saving"?
+Where does all the time go that we are constantly "saving"?
 
 With calendars full to the brim, people seem to have less time than ever before. In order to meet with a friend, I may have to book an appointment several weeks ahead. 
 
