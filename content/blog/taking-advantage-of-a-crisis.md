@@ -23,10 +23,8 @@ In order to move forward, good insights are just not enough.
 Probably we also need, from time to time, periods of destabilisation.
 
 The secret of success is to accept the crisis and make it your friend. Take
- advantage of the insecurity that comes along with it, collect your strength and 
- intentionally work for a break-through. This is the time to do it. Not looking behind, 
- but focussing on the future.
+ advantage of the insecurity that comes along with it, collect your strength and intentionally work for a break-through. This is the time to do it. Not looking behind, but focussing on the future.
 
 For moving forward, a time of crisis can be inestimably valuable. Don't let it become a stumbling block.
 
-Let it be a stepping stone.
+Make it a stepping stone.

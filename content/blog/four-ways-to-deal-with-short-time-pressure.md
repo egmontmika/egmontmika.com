@@ -1,6 +1,6 @@
 +++
 title = "4 Ways to Deal with Short-Time Pressure"
-date = 2017-03-15T03:01:45Z
+date = 2017-03-22T03:01:45Z
 image = "short-time pressure.jpg"
 draft = true
 +++
@@ -35,4 +35,4 @@ Ultimately, what is your purpose and your mission? What do you want to accomplis
 
 Once you know your priorities, stay consistant and let them guide you. Then, confirm or renew your decision from time to time when not under pressure. 
 
-This will get you where you want.
+This will keep short-time pressure away and get you where you want.
