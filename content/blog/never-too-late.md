@@ -6,12 +6,12 @@ draft = true
 +++
 
 
-It is said that the best time to plant a tree was twenty years ago. 
+The best time to plant a tree was twenty years ago, it is said.
 And the second best time is now. 
 
 It’s never too late to plant a tree.
 
-Or to start an education, to learn a language, to change a habit, to start a project, to build a house, to write a book, to invest in your children and grandchildren …
+Or to start an education, to learn a language, to change a habit, to start a project, to build a house, to write a book, to invest in your children and grandchildren...
 
 It’s never too late to connect and invest in people. And to be an example.
 
