@@ -6,8 +6,8 @@ draft = true
 +++
 
 
-It is said that the best time to plant a tree was twenty years ago, 
-yet, the second best time is now. 
+It is said that the best time to plant a tree was twenty years ago. 
+And the second best time is now. 
 
 It’s never too late to plant a tree.
 
