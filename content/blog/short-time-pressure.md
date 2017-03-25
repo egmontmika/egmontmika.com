@@ -1,5 +1,5 @@
 +++
-title = "4 Ways to Deal with Short-Time Pressure"
+title = "Short-Time Pressure"
 date = 2017-03-29T03:01:45Z
 image = "short-time pressure.jpg"
 draft = true
