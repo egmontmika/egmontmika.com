@@ -13,7 +13,7 @@ It’s never too late to plant a tree.
 
 Or to start an education, to learn a language, to change a habit, to start a project, to build a house, to write a book, to invest in your children and grandchildren …
 
-It’s never too late to invest in people. And to be an example.
+It’s never too late to connect and invest in people. And to be an example.
 
 Our lives are more significant than we tend to think at the moment. Every single one of us is the center of a sphere of influence, not only reaching out to the people around us, but also to those who come after us.
 
