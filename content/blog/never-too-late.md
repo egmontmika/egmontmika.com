@@ -5,19 +5,20 @@ image = "never too late.jpg"
 draft = true
 +++
 
-
-The best time to plant a tree was twenty years ago, it is said.
-And the second best time is now. 
-
 It’s never too late to plant a tree.
 
-Or to start an education, or learn a language, or change a habit, or build a house...
+The best time to plant a tree was twenty years ago, it is said.
+Yet, the second best time is now. 
 
-It’s never too late to start a project.
+No matter how old you are, today you can do it. Likewise, today you can start an education or start learning a language or change a habit or make an investment...
 
-Our lives are more significant than we tend to think at the moment. Every single one of us is the center of a sphere of influence, not only reaching out to the people around us, but also to those who come after us.
+Today you can start a project. It’s never too late.
+
+Our lives are more significant than we tend to think at the moment. Every single one of us is the center of a sphere of influence, not only reaching out to the people around us during our own life time, but also to those who come after us.
 
 They may not always know who started the project, yet, they enjoy its outcome. And they may not know who was the planter, yet they enjoy the tree and its fruit. 
 
-It’s never too late to invest in the future.
+Today you can invest in the future.
+
+It's never too late.
 
