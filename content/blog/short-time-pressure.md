@@ -11,7 +11,7 @@ Then preparing the dinner, picking up the kids,cleaning the house, buying a birt
 
 How do you deal with short-time pressure?
 
-The question is, what is important and urgent and what is not. Not everything important is also urgent. And not everything urgent is also important. And some things that claim to be both are neither one.
+The question is, what is *important* and what is *urgent*. And what is not. Not everything important is also urgent. And not everything urgent is also important. And some things that claim to be both are neither one.
 
 So let’s have a look at the four options and find out how to deal with them,one by one.
 
