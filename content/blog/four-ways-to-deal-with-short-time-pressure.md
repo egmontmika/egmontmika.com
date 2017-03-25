@@ -29,7 +29,7 @@ So let’s have a look at the four options and find out how to deal with them,on
 
     a. Never do it. And never let your mind get occupied with it. Don’t let junkmail lie around, but trash it right away.
     
-    b. Write it on a seperate to-do-list for less important things and keep it there. Some matters get settled      by themselves after a while. Then delete them. Or you settle them when they become urgent.
+    b. Write it on a seperate to-do-list for less important things and keep it there. Some matters get settled by themselves after a while. Then delete them. Or you settle them when they become urgent.
 
 In order to make this work, you may want to make a deal with yourself and decide about your priorities. You can’t do all things at all times. 
 
