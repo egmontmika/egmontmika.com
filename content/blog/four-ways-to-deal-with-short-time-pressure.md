@@ -5,7 +5,9 @@ image = "short-time pressure.jpg"
 draft = true
 +++
 
-Just making this phone call, then preparing the dinner, picking up the kids,cleaning the house, buying a birthday present, fixing the bike, getting a haircut, washing the clothes, reading the manual, answering those emails… The list seems endless.
+Just making this phone call...
+
+Then preparing the dinner, picking up the kids,cleaning the house, buying a birthday present, fixing the bike, getting a haircut, washing the clothes, reading the manual, answering those emails… The list seems endless.
 
 How do you deal with short-time pressure?
 
