@@ -14,7 +14,7 @@ Why can it be like that?
 For most of us, consuming such content just isn’t strong enough 
 to break through the habits and mental strongholds that we have built up over time. 
 Not strong enough to overcome our desire for comfort and to crack our fear. 
-We rather hold on to a lousy status-quo feeling safe than take a step into the unknown. 
+We rather hold on to a lousy status-quo that makes us feel safe than take a step into the unknown. 
 
 This is why a personal crisis can work as a door opener, but only if it 
 is deeper than our desire for comfort and stronger than our fear.
