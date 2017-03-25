@@ -14,7 +14,7 @@ No matter how old you are, today you can do it. Likewise, today you can start an
 
 Today you can start a project. It’s never too late.
 
-Our lives are more significant than we tend to think at the moment. Every single one of us is the center of a sphere of influence, not only reaching out to the people around us during our own life time, but also to those who come after us.
+Our lives are more significant than we tend to think at the moment. Every single one of us is the center of a sphere of influence. And we are reaching out, not only to the people around us during our own life time, but also to those who come after us.
 
 They may not always know who started the project, yet, they enjoy its outcome. And they may not know who was the planter, yet they enjoy the tree and its fruit. 
 
