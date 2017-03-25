@@ -1,7 +1,7 @@
 +++
 title = "Never too Late"
 date = 2017-04-20T03:01:45Z
-image = "short-time pressure.jpg"
+image = "never too late.jpg"
 draft = true
 +++
 
