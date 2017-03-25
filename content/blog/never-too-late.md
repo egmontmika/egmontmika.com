@@ -11,14 +11,13 @@ And the second best time is now.
 
 It’s never too late to plant a tree.
 
-Or to start an education, to learn a language, to change a habit, to start a project, to build a house, to write a book, to invest in your children and grandchildren...
+Or to start an education, or learn a language, or change a habit, or build a house...
 
-It’s never too late to connect and invest in people. And to be an example.
+It’s never too late to start a project.
 
 Our lives are more significant than we tend to think at the moment. Every single one of us is the center of a sphere of influence, not only reaching out to the people around us, but also to those who come after us.
 
-They may not always know who planted the tree, yet, they enjoy its fruit. 
+They may not always know who started the project, yet, they enjoy its outcome. And they may not know who was the planter, yet they enjoy the tree and its fruit. 
 
 It’s never too late to invest in the future.
 
-It’s never too late to do good.
