@@ -33,7 +33,7 @@ So let’s have a look at the four options and find out how to deal with them, o
 
 In order to make this work, you may want to make a deal with yourself and decide about your priorities. You can’t do all things at all times. 
 
-Ultimately, what is your purpose and your mission? What do you want to accomplish or improve or maximise. Why are you into this career? Who do you want to serve? 
+Clarify for yourself what your purpose is or your mission. What do you want to accomplish or improve or maximise. Why are you into this career? Who do you want to serve? 
 
 Once you know your priorities, stay consistant and let them guide you. Then, confirm or renew your decision from time to time when not under pressure. 
 
