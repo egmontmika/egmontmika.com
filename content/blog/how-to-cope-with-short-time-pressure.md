@@ -15,7 +15,7 @@ The question is, what is *important* and *urgent*? Not everything important is a
 
 So let’s have a look at the four options and find out how to cope with them, one by one.
 
-1. Urgent *and* important. - Do these things right away or as soon as possible.
+1. Urgent *and* important. - Settle these things right away or as soon as possible.
 
 2. Important, *but not* urgent. - Schedule a time when you want to do this or reserve a fixed time every day, week or month. Then follow that schedule.
 
