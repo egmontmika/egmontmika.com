@@ -1,5 +1,5 @@
 +++
-title = "Short-Time Pressure"
+title = "How to Cope with Short Time Pressure"
 date = 2017-03-29T03:01:45Z
 image = "short-time pressure.jpg"
 draft = true
@@ -7,11 +7,11 @@ draft = true
 
 Just making this phone call...
 
-Then preparing the dinner, picking up the kids,cleaning the house, buying a birthday present, fixing the bike, getting a haircut, washing the clothes, reading the manual, answering two or three emails… The list seems endless.
+Then preparing the dinner, picking up the kids,cleaning the house, buying a birthday present, fixing the bike, getting a haircut, washing the clothes, reading the manual, answering them emails… The list seems endless.
 
 How do you deal with short-time pressure?
 
-The question is, what is *important* and what is *urgent*. And what is not. Not everything important is also urgent. And not everything urgent is also important. And some things that claim to be both are neither one.
+The question is, what is *important* and what is *urgent*. And what is *not*. Not everything important is also urgent. And not everything urgent is also important. And some things that claim to be both are neither one.
 
 So let’s have a look at the four options and find out how to deal with them, one by one.
 
