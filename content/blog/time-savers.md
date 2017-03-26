@@ -1,7 +1,7 @@
 +++
 title = "Time Savers"
 date = "2017-03-16T22:44:14Z"
-image = "time savers.JPG"
+image = "time savers.jpg"
 +++
 
 Time is limited. Time is precious. Time is running out.
