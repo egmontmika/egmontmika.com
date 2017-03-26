@@ -5,11 +5,11 @@ image = "short-time pressure.jpg"
 draft = true
 +++
 
-Just making this phone call...
+Just making this phone call....
 
 Then preparing the dinner, picking up the kids, cleaning the house, buying a birthday present, fixing the bike, getting a haircut, washing the clothes, reading the manual, answering the emails… The list seems endless.
 
-How do you deal with short-time pressure?
+How do you cope with short-time pressure?
 
 The question is, what is *important* and what is *urgent*. And what is *not*. Not everything important is also urgent. And not everything urgent is also important. And some things that claim to be both are neither one.
 
