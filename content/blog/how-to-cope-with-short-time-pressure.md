@@ -13,7 +13,7 @@ How do you cope with short-time pressure?
 
 The question is, what is *important* and *urgent*? Not everything important is also urgent. And not everything urgent is also important. And some things that claim to be both are neither one.
 
-So let’s have a look at the four options and find out how to deal with them, one by one.
+So let’s have a look at the four options and find out how to cope with them, one by one.
 
 1. Urgent *and* important. - Do these things right away or as soon as possible.
 
