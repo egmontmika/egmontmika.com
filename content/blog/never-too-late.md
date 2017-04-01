@@ -10,7 +10,7 @@ Yet, the second best time is now.
 
 It’s never too late to plant a tree.
 
-No matter how old you are, today you can do it. Today, you can start an education, learning a language, changeing a habit or start a project...
+No matter how old you are, today you can do it. Today, you can start an education, learning a language, changeing a habit, or start a project...
 
 Today, you can make an investment in the future. It’s never too late.
 
