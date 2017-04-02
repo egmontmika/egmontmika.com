@@ -21,6 +21,7 @@ Or to chat with another early comer. Encourage someone who came with a need.
 Early time - time to connect. Time to build a relationship. Time to care.
 
 Precious time!
+
 You may want to come a little earlier…
 
 Just because you care.
