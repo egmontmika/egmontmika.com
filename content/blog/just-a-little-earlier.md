@@ -6,7 +6,9 @@ image = "just a little earlier.jpg"
 draft = true
 +++
 
-For some people, it seems to be all right to be late to our meeting. Nobody will take notice anyway, it seems. And others will be late, as well.
+For some people, it seems to be all right to come late to our meeting. 
+
+Nobody will take notice anyway, it seems. And others will be late, as well.
 
 For them, it seems all right, as long as they don’t miss the highlights and as long as they get what they are expecting. And, by showing up, fulfill their social duty.
 
