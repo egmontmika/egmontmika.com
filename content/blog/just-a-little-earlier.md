@@ -10,7 +10,7 @@ To some people, it seems all right to come "a little late" to our meeting.
 
 Nobody will take notice anyway, it seems. And others will be late, as well.
 
-To them, coming late seems all right, as long as they don’t miss the highlights and as long as they get what they are expecting. And as long as  they show up and fulfill their social duty.
+To them, coming late seems all right, as long as they don’t miss the highlights and as long as they get what they are expecting. As long as  they show up and fulfill their social duty.
 
 Why invest more time than necessary?
 
