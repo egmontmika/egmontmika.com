@@ -6,7 +6,7 @@ image = "just a little earlier.jpg"
 draft = true
 +++
 
-To some people, it seems all right to come late to our meeting. 
+To some people, it seems all right to come "a little late" to our meeting. 
 
 Nobody will take notice anyway, it seems. And others will be late, as well.
 
