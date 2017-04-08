@@ -15,7 +15,7 @@ Without pretending.
 
 Showing up on time - doing your work - keeping your promises.
 
-You don’t need to add more promises. Or make bigger promises. Just keep the ones you already made.
+No need to add more promises. Or make bigger promises. Just keep the ones you already made.
 
 No need to improve your image. Or compare yourself with others.
 
