@@ -16,7 +16,7 @@ Why invest more time than necessary?
 
 Others may want to come a little earlier. Be there before the program starts. Offering a little extra time. Just to be prepared. Or to encourage the host. Or to make themselves available. Like being able to lend a helping hand for the preparations.
 
-Or to chat with another early comer. Encourage someone who came with a need.
+Or to chat with another early comer. Encourage someone who came with a need, with the desire to talk to someone who would listen.
 
 Early time - time to connect. Time to build a relationship. Time to care.
 
