@@ -6,11 +6,11 @@ image = "just a little earlier.jpg"
 draft = true
 +++
 
-To some people, it seems all right to come "a little late" to our meeting. 
+To some people, it seems all right to come "a little late". 
 
-Nobody will take notice anyway, it seems. And others will be late, as well.
+Nobody will take notice anyway, it seems. And others will be late as well, they think.
 
-To them, coming late seems all right, as long as they don’t miss the highlights and as long as they get what they are expecting. As long as  they show up and fulfill their social duty.
+To them, coming late is all right, as long as they don’t miss the highlights and as long as they get what they are expecting. And as long as they fulfill their social duty.
 
 Why invest more time than necessary?
 
@@ -22,6 +22,6 @@ Early time - time to connect. Time to build a relationship. Time to care.
 
 Precious time!
 
-You may want to come a little earlier…
+You may want to come a little earlier - 
 
 Just because you care.
