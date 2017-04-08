@@ -5,10 +5,12 @@ image = "never too late.jpg"
 draft = true
 +++
 
-It’s never too late to plant a tree.
+It's never too late to invest in the future.
 
 The best time to plant a tree was twenty years ago, it is said.
 Yet, the second best time is now. 
+
+It’s never too late to plant a tree.
 
 No matter how old you are, today you can make an investment. Today, you can start an education, start learning a language, start changeing a habit, start building a house, start a project...
 
