@@ -16,7 +16,6 @@ Without pretending.
 Showing up on time - doing your work - keeping your promises. Period.
 
 No need to add more or bigger promises. Just keep the ones you already made.
-
 No need to improve your image. Or compare yourself with others.
 
 Just be the person you say you are.
