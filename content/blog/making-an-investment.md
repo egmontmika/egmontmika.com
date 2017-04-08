@@ -12,7 +12,7 @@ Yet, the second best time is now.
 
 No matter how old you are, today you can make an investment. Today, you can start an education, start learning a language, start changeing a habit, start building a house, start a project...
 
-Today, you can invest in the future. It’s never too late.
+Today, you can invest in your future. And in others'. It’s never too late.
 
 Our lives are far more significant than we tend to think at the moment. Every single one of us is the center of a sphere of influence. And we are reaching out, not only to the people around us during our own life time, but also to those who come after us.
 
