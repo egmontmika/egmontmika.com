@@ -20,7 +20,7 @@ This is why a personal crisis can work as a door opener, but only if it
 is deeper than our desire for comfort and stronger than our fear.
 
 In order to move forward, good insights are just not enough. 
-Probably we also need, from time to time, periods of destabilisation.
+Probably we also need, from time to time, a period of destabilisation. That is, a crisis.
 
 The secret of success is to accept the crisis and make it your friend. Take
  advantage of the insecurity that comes along with it, collect your strength and intentionally work for a break-through. This is the time to do it. Not looking behind, but focussing on the future.
