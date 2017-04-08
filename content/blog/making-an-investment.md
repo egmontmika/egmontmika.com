@@ -18,7 +18,7 @@ Today you can invest in your future. And in others'.
 
 Our lives are far more significant than we tend to think at the moment. Every single one of us is the center of a sphere of influence. And we are reaching out, not only to the people around us during our own life time, but also to those who come after us.
 
-They may not know who was the planter, yet they enjoy your tree and its fruit. And they may not always know who started your project, yet, they enjoy its outcome.  
+They may not know who was the planter, yet they enjoy your tree and its fruit. And they may not always know who built that house or who started that project, yet, they still enjoy its outcome.  
 
 Today you can take the first step.
 
