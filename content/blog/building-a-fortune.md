@@ -7,7 +7,7 @@ draft = true
 +++
 The real fortune you can build is trust.
 
-By saying what you are going to do - and then do what you said.
+By saying what you are going to do - and then do what you said. Nothing less, rather a little more.
 
 Without any hidden agenda, without cutting corners or faking the results, and without covering up your mistakes.
 
