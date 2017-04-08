@@ -25,6 +25,6 @@ Probably we also need, from time to time, a period of destabilisation. That is, 
 The secret of success is to accept the crisis and make it your friend. Take
  advantage of the insecurity that comes along with it, collect your strength and intentionally work for a break-through. This is the time to do it. Not looking behind, but focussing on the future.
 
-For moving forward, a time of crisis can be inestimably valuable. Don't let it become a stumbling block.
+For moving forward, a crisis can be inestimably valuable. Don't let it become a stumbling block.
 
 Make it a stepping stone.
