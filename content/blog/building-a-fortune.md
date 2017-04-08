@@ -6,8 +6,6 @@ image = "building a fortune.jpg"
 draft = true
 +++
 
-Building a Fortune
-
 The real fortune you can build is trust.
 
 By saying what you are going to do.
