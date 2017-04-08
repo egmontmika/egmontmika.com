@@ -1,5 +1,5 @@
 +++
-title = "Making an Investment"
+title = "Investing in the Future"
 date = 2017-04-20T03:01:45Z
 image = "never too late.jpg"
 draft = true
