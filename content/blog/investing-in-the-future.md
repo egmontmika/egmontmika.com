@@ -1,8 +1,7 @@
 +++
 title = "Investing in the Future"
-date = 2017-04-26T03:01:45Z
+date = 2017-04-12T03:01:45Z
 image = "investing-in-the-future.jpg"
-draft = true
 +++
 
 It's never too late to invest in the future.
