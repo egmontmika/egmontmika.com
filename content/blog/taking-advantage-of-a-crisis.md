@@ -2,9 +2,7 @@
 title = "Taking Advantage of a Crisis"
 date = 2017-04-12T03:01:45Z
 image = "taking advantage of a crisis.JPG"
-draft = true
 +++
-
 
 You can hear an inspiring message. You can read a life-changing book. 
 You can get overwhelmed by a new insight. Yet, see nothing change.
