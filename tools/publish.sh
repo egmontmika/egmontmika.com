@@ -1,6 +1,6 @@
 #!/bin/bash
 if [ ! -d "public/.git" ]; then
-	git clone --depth 1 --single-branch https://github.com/egmontmika/amharix.com -b gh-pages public
+	git clone --depth 1 --single-branch https://github.com/egmontmika/egmontmika.com -b gh-pages public
 fi
 rm -rf public/*
 hugo
