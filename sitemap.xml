@@ -2,9 +2,73 @@
 <urlset xmlns="http://www.sitemaps.org/schemas/sitemap/0.9">
   
   <url>
-    <loc>http://egmontmika.com/</loc>
-    <lastmod>2016-09-14T03:01:45+00:00</lastmod>
-    <priority>0</priority>
+    <loc>http://egmontmika.com/blog/taking-advantage-of-a-crisis/</loc>
+    <lastmod>2017-04-12T03:01:45+00:00</lastmod>
+  </url>
+  
+  <url>
+    <loc>http://egmontmika.com/blog/how-to-cope-with-short-time-pressure/</loc>
+    <lastmod>2017-03-29T03:01:45+00:00</lastmod>
+  </url>
+  
+  <url>
+    <loc>http://egmontmika.com/blog/time-savers/</loc>
+    <lastmod>2017-03-16T22:44:14+00:00</lastmod>
+  </url>
+  
+  <url>
+    <loc>http://egmontmika.com/blog/letting-go/</loc>
+    <lastmod>2017-02-22T03:01:45+00:00</lastmod>
+  </url>
+  
+  <url>
+    <loc>http://egmontmika.com/blog/the-radical-edge/</loc>
+    <lastmod>2017-02-15T03:01:45+00:00</lastmod>
+  </url>
+  
+  <url>
+    <loc>http://egmontmika.com/blog/ready-to-engage/</loc>
+    <lastmod>2017-02-08T03:01:45+00:00</lastmod>
+  </url>
+  
+  <url>
+    <loc>http://egmontmika.com/blog/love-overcomes-fear/</loc>
+    <lastmod>2017-01-04T22:44:14+00:00</lastmod>
+  </url>
+  
+  <url>
+    <loc>http://egmontmika.com/blog/the-fruit-of-your-life/</loc>
+    <lastmod>2016-12-29T22:44:14+00:00</lastmod>
+  </url>
+  
+  <url>
+    <loc>http://egmontmika.com/blog/a-heart-decision/</loc>
+    <lastmod>2016-12-07T22:44:14+00:00</lastmod>
+  </url>
+  
+  <url>
+    <loc>http://egmontmika.com/blog/how-to-start-a-church-2/</loc>
+    <lastmod>2016-11-22T03:01:45+00:00</lastmod>
+  </url>
+  
+  <url>
+    <loc>http://egmontmika.com/blog/taking-a-new-decision/</loc>
+    <lastmod>2016-11-12T03:01:45+00:00</lastmod>
+  </url>
+  
+  <url>
+    <loc>http://egmontmika.com/blog/broken-trust-8/</loc>
+    <lastmod>2016-10-28T13:58:11+00:00</lastmod>
+  </url>
+  
+  <url>
+    <loc>http://egmontmika.com/blog/the-impact-of-your-influence/</loc>
+    <lastmod>2016-10-12T03:01:45+00:00</lastmod>
+  </url>
+  
+  <url>
+    <loc>http://egmontmika.com/blog/what-really-matters-part-3/</loc>
+    <lastmod>2016-09-28T06:39:19+00:00</lastmod>
   </url>
   
   <url>
@@ -15,11 +79,6 @@
   <url>
     <loc>http://egmontmika.com/blog/what-really-matters/</loc>
     <lastmod>2016-09-01T03:01:45+00:00</lastmod>
-  </url>
-  
-  <url>
-    <loc>http://egmontmika.com/blog/better-than-a-thrill/</loc>
-    <lastmod>2016-08-24T03:01:45+00:00</lastmod>
   </url>
   
   <url>
@@ -253,11 +312,6 @@
   </url>
   
   <url>
-    <loc>http://egmontmika.com/blog/only-disciples-make-disciples/</loc>
-    <lastmod>2014-08-22T13:58:11+00:00</lastmod>
-  </url>
-  
-  <url>
     <loc>http://egmontmika.com/blog/being-a-little-jesus/</loc>
     <lastmod>2014-06-05T22:10:17+00:00</lastmod>
   </url>
@@ -330,6 +384,22 @@
   <url>
     <loc>http://egmontmika.com/blog/more-than-membership/</loc>
     <lastmod>2014-01-03T16:54:13+00:00</lastmod>
+  </url>
+  
+  <url>
+    <loc>http://egmontmika.com/blog/only-disciples-make-disciples/</loc>
+  </url>
+  
+  <url>
+    <loc>http://egmontmika.com/blog/</loc>
+    <lastmod>2017-04-12T03:01:45+00:00</lastmod>
+    <priority>0</priority>
+  </url>
+  
+  <url>
+    <loc>http://egmontmika.com/</loc>
+    <lastmod>2017-04-12T03:01:45+00:00</lastmod>
+    <priority>0</priority>
   </url>
   
 </urlset>
