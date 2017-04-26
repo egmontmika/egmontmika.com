@@ -5,9 +5,9 @@ image = "taking advantage of a crisis.JPG"
 +++
 
 You can hear an inspiring message. You can read a life-changing book. 
-You can get overwhelmed by a new insight. Yet, see nothing change.
+You can get overwhelmed by a new insight. 
 
-Why can it be like that?
+Yet, see nothing change.
 
 For most of us, consuming such content just isn’t strong enough 
 to break through the habits and mental strongholds that we have built up over time. 
