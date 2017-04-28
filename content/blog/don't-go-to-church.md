@@ -1,4 +1,9 @@
-
++++
+title = "Don't Go to Church"
+date = 2017-04-28T03:01:45Z
+image = "taking advantage of a crisis.JPG"
+draft = true
++++
 Don’t go to church!
 From the beginning, church was never meant to be a program or an event, neither a building nor a an organisation or a denomination. Neither a worship service. 
 What is it, then?
