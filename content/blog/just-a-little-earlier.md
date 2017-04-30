@@ -6,7 +6,7 @@ image = "just a little earlier.jpg"
 draft = true
 +++
 
-To some people, it seems all right to always show up "a little late". 
+To some people, it seems all right to show up "a little late". 
 
 Nobody will take notice anyway, it seems. And others will be late as well, they think.
 
