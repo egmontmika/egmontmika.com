@@ -7,7 +7,7 @@ draft = true
 
 Church isn't a worship service. 
 
-Not a program or an event you ***go to***. Far less a building, an organisation or a denomination. It wasn't that from the beginning, and it still isn't meant to be that.
+Not a program or an event you ***go to***. Far less a building, an organisation or a denomination. It wasn't that from the beginning, and it still isn't meant to be that today.
 
 What is it, then?
 
