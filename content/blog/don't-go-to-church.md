@@ -1,7 +1,7 @@
 +++
 title = "Don't Go to Church!"
 date = 2017-04-28T03:01:45Z
-image = "taking advantage of a crisis.JPG"
+image = "don't go to church.jpg"
 draft = true
 +++
 
