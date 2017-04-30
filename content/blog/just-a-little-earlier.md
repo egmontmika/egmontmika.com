@@ -6,7 +6,7 @@ image = "just a little earlier.jpg"
 draft = true
 +++
 
-Some are late-comers by habit. 
+Some are late comers by habit. 
 
 To them, it seems all right to show up just "a little late". Nobody will take notice anyway, it seems. And others will be late as well, they think.
 
