@@ -5,11 +5,13 @@ image = "don't go to church2.jpg"
 draft = true
 +++
 
-From the beginning, church wasn't meant to be a program or an event. Not a worship service you ***go to***. Far less a building, an organisation or a denomination. 
+From the beginning, church wasn't a worship service. 
+
+Not a program or an event you ***go to***. Far less a building, an organisation or a denomination. And it still isn't meant to be that.
 
 What is it, then?
 
-It’s a family, a movement, a divine fellowship. It’s a calling.  And a mission. 
+It’s a family, a movement, a divine fellowship. A calling and a mission. 
 
 It’s what we are birthed into as followers of Jesus, redeemed through Jesus, reconciled with our Father in heaven. 
 
