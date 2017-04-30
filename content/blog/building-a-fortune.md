@@ -28,7 +28,7 @@ That will amount to much.
 This was my last blogpost for this season. It's time for a summer break.
 Thank you for reading my articles and joining me in the journey, so far.
 
-I'll be back to you in September. Would you like to get a reminder by email? Then, make sure you have signed up.
+I'll be back to you in September. Would you like to get a reminder by email? Then, make sure you have signed up by entering your email address in the top right corner of this page.
 
 Be blessed!
 
