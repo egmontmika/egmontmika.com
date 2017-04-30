@@ -13,7 +13,7 @@ What is it, then?
 
 It’s a family, a movement, a divine fellowship. A calling and a mission. 
 
-It’s what we are birthed into as followers of Jesus, redeemed through him, reconciled with our Father in heaven. 
+It’s what we are born into as followers of Jesus, redeemed through him, reconciled with our Father in heaven. 
 
 By his grace.
 
