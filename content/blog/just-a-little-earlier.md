@@ -10,7 +10,7 @@ To certain people, it seems all right to show up "a little late". As a habit.
 
 Nobody will take notice anyway, it seems. And others will be late as well, they think.
 
-To them, coming late is all right, as long as they don’t miss the highlights and as long as they get what they are expecting. And as long as they fulfill their social duty to show up.
+To them, coming late is all right, as long as they don’t miss the highlights and as long as they get what they are expecting. And fulfill their social duty to show up.
 
 Why invest more time than necessary?
 
