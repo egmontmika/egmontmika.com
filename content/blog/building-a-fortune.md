@@ -28,7 +28,9 @@ That will amount to much.
 This was my last blogpost for this season. It's time for a summer break.
 Thank you for reading my articles and joining me in the journey.
 
-I'll be back to you in September.
+I'll be back to you in September. Would you like to get a reminder by email then? Make sure you have signed up.
+
+Be blessed!
 
 Yours
 Egmont
