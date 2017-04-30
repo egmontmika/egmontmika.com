@@ -6,9 +6,9 @@ image = "just a little earlier.jpg"
 draft = true
 +++
 
-To certain people, it seems all right to show up "a little late". As a habit.
+Some are late-comers by habit. 
 
-Nobody will take notice anyway, it seems. And others will be late as well, they think.
+To them, it seems all right to show up just "a little late". Nobody will take notice anyway, it seems. And others will be late as well, they think.
 
 To them, coming late is all right, as long as they don’t miss the highlights and as long as they get what they are expecting. And fulfill their social duty to show up.
 
