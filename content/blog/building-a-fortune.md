@@ -23,12 +23,12 @@ Just be the person you say you are.
 That will amount to much.
 
 ---
-**Hello friends!**
+***Hello friends!***
 
 This was my last blogpost for this season. It's time for a summer break.
-Thank you for reading my articles and joining me in the journey.
+Thank you for reading my articles and joining me in the journey, so far.
 
-I'll be back to you in September. Would you like to get a reminder by email then? Make sure you have signed up.
+I'll be back to you in September. Would you like to get a reminder by email? Then, make sure you have signed up.
 
 Be blessed!
 
