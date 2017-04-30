@@ -17,8 +17,9 @@ It’s what we are birthed into as followers of Jesus, redeemed through Jesus, r
 
 By his grace.
 
-Molong Nacua, a Jesus follower from the Filipines, put it this way:
-”Church is where Christ lives, not the place where we meet. It is Christ-empowered people, a kingdom of priests for the purpose of winning against the works of the devil and establishing God's Kingdom."
+[Molong Nacua][1], a Jesus follower from the Filipines, put it this way:
+[1]: https://molongnacua.com/being-church/?blogsub=confirmed#blog_subscription-3
+>*Church is where Christ lives, not the place where we meet. It is Christ-empowered people, a kingdom of priests for the purpose of winning against the works of the devil and establishing God's Kingdom.*
 
 It’s not so much about what we do, but who we are. In Christ. Then listen and obey. No matter where, no matter when. Everywhere, at all times.
 
