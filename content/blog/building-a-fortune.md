@@ -21,3 +21,14 @@ No need to improve your image. Or compare yourself with others.
 Just be the person you say you are.
 
 That will amount to much.
+
+---
+**Hello friends!**
+
+This was my last blogpost for this season. It's time for a summer break.
+I'll be back to you in September.
+
+Thank you for reading my articles and joining me in the journey.
+
+Yours
+Egmont
