@@ -1,11 +1,11 @@
 +++
-title = "Don't Go to Church"
+title = "Don't Go to Church!"
 date = 2017-04-28T03:01:45Z
 image = "taking advantage of a crisis.JPG"
 draft = true
 +++
 
-From the beginning, church wasn't meant to be a program or an event. Not a worship service you go to. Far less a building, an organisation or a denomination. 
+From the beginning, church wasn't meant to be a program or an event. Not a worship service you ***go to***. Far less a building, an organisation or a denomination. 
 
 What is it, then?
 
@@ -20,4 +20,4 @@ Molong Nacua, a Jesus follower from the Filipines, put it this way:
 
 It’s not so much about what we do, but who we are. In Christ. Then listen and obey. No matter where, no matter when. Everywhere, at all times.
 
-We **are** the church.
+***We are*** the church.
