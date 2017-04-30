@@ -1,7 +1,7 @@
 
 +++
 title = "Building a Fortune"
-date = 2017-05-23T03:01:45Z
+date = 2017-06-07T03:01:45Z
 image = "building a fortune.jpg"
 draft = true
 +++
