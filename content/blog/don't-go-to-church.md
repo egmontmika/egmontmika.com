@@ -23,4 +23,4 @@ By his grace.
 
 It’s not so much about our programs, but who we are. In Christ. Then follow him. Listen and obey. No matter where, no matter when. Everywhere, at all times.
 
-Don't go to church. ***Be*** the church.
+Don't ***go to*** church. ***Be*** the church.
