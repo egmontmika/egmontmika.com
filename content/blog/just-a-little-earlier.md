@@ -1,6 +1,6 @@
 
 +++
-title = "Just a Little Earlier"
+title = "Coming a Little Earlier"
 date = 2017-05-10T03:01:45Z
 image = "just a little earlier.jpg"
 +++
