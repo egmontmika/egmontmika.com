@@ -20,6 +20,6 @@ By his grace.
 [1]: https://molongnacua.com/being-church/?blogsub=confirmed#blog_subscription-3
 >*Church is where Christ lives, not the place where we meet. It is Christ-empowered people, a kingdom of priests for the purpose of winning against the works of the devil and establishing God's Kingdom.*
 
-It’s about who we are. In Christ. Then follow him. Listen and obey. No matter where, no matter when - everywhere, at all times.
+It’s about who we ***are***. In Christ. Then follow him. Listen and obey. No matter where, no matter when - everywhere, at all times.
 
-Don't ***go to*** church. ***Be*** the church.
+Don't ***go to*** church. ***Be*** church.
