@@ -4,7 +4,7 @@ date = 2017-05-23T03:01:45Z
 image = "don't go to church2.jpg"
 +++
 
-Church isn't a worship service. Nothing you **go to**.
+Church isn't a worship service. Nothing you ***go to***.
 
 Neither a program nor an event. Far less a building, an organisation or a denomination. It wasn't that from the beginning, and it still isn't meant to be that today.
 
