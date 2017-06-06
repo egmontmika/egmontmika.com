@@ -5,26 +5,26 @@ date = 2017-06-07T03:01:45Z
 image = "building a fortune.jpg"
 draft = true
 +++
-The best fortune you can build is trust.
+The greatest fortune you can make is trust.
 
-Building trust is simple. Say what you are going to do and then do what you said. You keep your promises. You act out your words. Never doing less, rather a little more.
+Building trust seems simple. Say what you are going to do and then do what you said. By keeping your promises. By acting out your words. Never doing less, rather a little more.
 
 Without any hidden agenda, without cutting corners or faking the results, and without covering up your mistakes.
 
 Without pretending.
 
-Showing up on time - doing your work - completing it. Keeping your promises. 
+Showing up on time - doing your work - completing it. Period. 
 
 No need to add more or better promises. Just keep the ones you already made.
 No need to improve your image. Or compare yourself with others.
 
 Just be the person you say you are.
 
-Sounds simple, doesn't it? Yet, I didn't say that it always is easy. Sometimes it takes a great effort, and for some people it just seems impossible.
+Sounds simple, doesn't it? Yet, it's not always that easy. Sometimes it takes a great effort, and for some people it just seems impossible. For those who want to hide something.
 
-You've got to be honest. Radically honest. This is the price to pay.
+You've got to be honest. Radically honest. This is the price you pay for your fortune.
 
-In the long run, it will amount to much.
+In the long run, it will pay and amount to much.
 
 ---
 ***Hello friends!***
