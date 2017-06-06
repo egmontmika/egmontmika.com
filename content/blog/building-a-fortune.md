@@ -44,4 +44,5 @@ Have a nice summer.
 Be blessed with the joy in the Lord!
 
 Yours,
+
 Egmont
