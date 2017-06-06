@@ -22,9 +22,9 @@ No need to improve your image; it's not a matter of marketing. No need to compar
 
 Just be the person you say you are.
 
-It's simple, indeed, but not always easy. We hardly get it without effort and sometimes it takes great courage. And sometimes it just seems impossible, whenever you want to hide something.
+It's simple, indeed, but not always easy. We hardly get it without effort and sometimes it takes great courage. And for some of us it just seems impossible, that is, whenever we want to hide something.
 
-In order to build a fortune of trust, you've got to be honest. Radically honest. This is the price you pay. And for a short while, it may look like you are loosing.
+In order to build a fortune of trust, you've got to be honest. Radically honest. This is the price you pay. At times, and for a short while, it may look like you are loosing.
 
 In the long run, though, it will pay and amount to much.
 
