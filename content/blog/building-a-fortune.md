@@ -5,22 +5,22 @@ date = 2017-06-07T03:01:45Z
 image = "building a fortune.jpg"
 draft = true
 +++
-The real fortune you can build is trust.
+The best fortune you can build is trust.
 
-By saying what you are going to do - and then doing what you said. Never less, rather a little more.
+You build trust by saying what you do and by doing what you said. Keeping your promises. Living up to your words. Never doing less, rather a little more.
 
 Without any hidden agenda, without cutting corners or faking the results, and without covering up your mistakes.
 
 Without pretending.
 
-Showing up on time - doing your work - keeping your promises. Period.
+Showing up on time - doing your work - completing it. Keeping your promises. 
 
-No need to add more or bigger promises. Just keep the ones you already made.
+No need to add more or better promises. Just keep the ones you already made.
 No need to improve your image. Or compare yourself with others.
 
 Just be the person you say you are.
 
-That will amount to much.
+In the long run, it will amount to much.
 
 ---
 ***Hello friends!***
