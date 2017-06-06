@@ -9,7 +9,7 @@ You can't buy trust.
 
 Yet, it's one of the greatest fortunes you can gain.
 
-At first glance, building trust seems simple. You say what you are going to do and then do what you said. You keep your promises. You act out your words. Never doing less than you promised, rather a little more.
+At first glance, building trust seems simple. You say what you are going to do and then do what you said. You keep your promises. You act out your words. Never doing less, rather a little more.
 
 Without any hidden agenda, without cutting corners. Without faking the results. And without covering up your mistakes.
 
