@@ -4,9 +4,9 @@ title = "Building a Fortune"
 date = 2017-06-07T03:01:45Z
 image = "building a fortune.jpg"
 +++
-You can't buy trust.
+You can’t buy trust.
 
-Yet, it's one of the greatest assets you can have. It's a fortune.
+Yet, it’s one of the greatest assets you can have. It’s a fortune.
 
 At first glance, building trust seems simple. You say what you are going to do and then do what you said. You keep your promises. You act out your words. Never giving less, rather a little more.
 
@@ -14,15 +14,15 @@ Without any hidden agenda, without cutting corners. Without faking the results. 
 
 Without pretending.
 
-Showing up on time - doing your work - completing it. Period. 
+Showing up on time - doing your work - completing it. Period.
 
-No need to make it look fancier. No need to add more or better promises. Just keep the ones you already made. No need to improve your image; it's not a matter of marketing, anyway.
+No need to make it look fancier. No need to add more or better promises. Just keep the ones you already made. No need to improve your image; it’s not a matter of marketing, anyway.
 
 Just be the person you say you are and do what is right.
 
-It's simple, indeed, but not always easy. We hardly get it without effort and sometimes it takes great courage. And for some of us it just seems impossible, as long as we are hiding something.
+It’s as simple as that, indeed. But alas! It’s not always easy. We hardly get it without effort and sometimes it takes great courage. And for some of us it just seems impossible, as long as we are hiding something.
 
-In order to build a fortune of trust, you've got to be honest. Absolutely, radically honest. At times, and for a short while, this may make you look like a looser. 
+In order to build a fortune of trust, you’ve got to be honest. Absolutely, radically honest. At times, and for a while, this may make you look like a looser.
 
 There is a price to pay.
 
