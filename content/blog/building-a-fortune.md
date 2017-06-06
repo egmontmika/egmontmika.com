@@ -7,7 +7,7 @@ draft = true
 +++
 The best fortune you can build is trust.
 
-You build trust by saying what you do and by doing what you said. Keeping your promises. Living up to your words. Never doing less, rather a little more.
+Building trust is simple. Say what you are going to do and then do what you said. You keep your promises. You act out your words. Never doing less, rather a little more.
 
 Without any hidden agenda, without cutting corners or faking the results, and without covering up your mistakes.
 
@@ -19,6 +19,10 @@ No need to add more or better promises. Just keep the ones you already made.
 No need to improve your image. Or compare yourself with others.
 
 Just be the person you say you are.
+
+Sounds simple, doesn't it? Yet, I didn't say that it always is easy. Sometimes it takes a great effort, and for some people it just seems impossible.
+
+You've got to be honest. Radically honest. This is the price to pay.
 
 In the long run, it will amount to much.
 
