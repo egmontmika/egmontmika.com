@@ -34,7 +34,7 @@ In the long run, though, honesty will pay and amount to much.
 
 This was my last blogpost for this season. The school year in Sweden is rapidly coming to an end and it's time for a summer break.
 
-Thank you for reading my articles and joining me in the journey.
+Thank you for reading my articles and joining me in the journey. I hope you enjoyed reading at least some of them.
 
 I'll be back to you in September. Would you like to get a reminder by email? Then, make sure you have signed up by entering your email address in the top right corner of this page.
 
