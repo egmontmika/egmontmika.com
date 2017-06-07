@@ -26,7 +26,7 @@ In order to build a fortune of trust, you’ve got to be honest. Absolutely, rad
 
 There is a price to pay.
 
-In the long run, though, honesty will pay and amount to much.
+In the long run, though, reliabilty and honesty will pay and amount to much.
 
 ---
 ***Hello friends!***
