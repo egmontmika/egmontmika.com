@@ -24,4 +24,4 @@ Nevertheless this amazing growth!
 
 It’s easy to think that we could accomplish so much more for the Lord, if we just had more money and could give more.
 
-Is it really so?
+Is that so?
