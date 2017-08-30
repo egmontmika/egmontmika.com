@@ -1,5 +1,5 @@
 +++
-title = "Church Upside-Down"
+title = "Church Upside-up or Upside-down?"
 date = 2017-09-10T03:01:45Z
 image = "church upside-down.jpg"
 +++
@@ -7,7 +7,7 @@ image = "church upside-down.jpg"
 A car on its roof doesn’t make sense.
 
 No matter how hard you push the pedal, how much noise 
-the engine makes or how fast its wheels spin round, 
+the engine makes and how fast its wheels spin round, 
 this car won’t take you anywhere.
 
 To make sense, a car just has to stand on its four wheels. 
