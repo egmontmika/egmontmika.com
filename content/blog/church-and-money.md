@@ -14,7 +14,7 @@ In order to find out if this is true, let’s look at some statistics. How is th
 
 According to investigations from 2015, www.thetravelingteam.org, all church members around the globe gave in one year on average 1,7% of their income to churches. 2,9% of this money was used for mission inside their own countries and 0,3% for mission in unreached, non-christian countries. 
 
-However, the largest part, 96,8%, was used for building the local church, went mainly to salaries and buildings.
+However, the largest part, 96,8%, was used for building the local church,that is, went mainly to salaries and buildings.
 
 In contrast, we are witnessing Christian movements in the third world, and not only there, with an unparallelled growth in history, yet, with very limited financial resources. These are grass-root movements, carried by the believers and their families, many of them poor. 
 
