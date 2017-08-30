@@ -20,7 +20,7 @@ In contrast, we are witnessing Christian movements in the third world, and not o
 
 Moreover, some of these fast growing movements are operating under extremely difficult circumstances and even suffering persecution, like in China, South-Asia, and the Middle East. According to Open Doors every month hundreds of believers are killed because of their faith.
 
-Nevertheless this growth!
+Nevertheless this amazing growth!
 
 It’s easy to think that we could do so much more for the Lord, if we just had more money and could give more.
 
