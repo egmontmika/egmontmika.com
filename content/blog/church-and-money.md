@@ -8,7 +8,7 @@ image = "church and money.jpg"
 
 This is what we hear the critics say, while pointing at the large amounts of money collected by Christian ministries today.
 
-”No, it’s not true”, we answer, believing to have a better understanding. ”It’s about Jesus and the Good News and about saving people for eternity. It’s about mission. Of course, this costs money. The more money, the better, the more we can reach.”
+”No, it’s not true”, we answer, believing to have a better understanding. ”It’s all about Jesus and the Good News and about saving people for eternity. It’s about mission. Of course, this costs money. The more money, the better, the more we can reach.”
 
 In order to find out what is true, let’s look at some statistics. How is the money is spent and what is being accomplished?
 
