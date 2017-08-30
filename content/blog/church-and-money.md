@@ -12,7 +12,7 @@ This is what we hear the critics say, while pointing at the large amounts of mon
 
 In order to find out if this is true, let’s look at some statistics. How is the money spent and what is being accomplished?
 
-According to investigations from 2015,www.thetravelingteam.org, all church members around the globe gave in one year on average 1,7% of their income to churches. 2,9% of this money was used for mission inside their own countries and 0,3% for mission in unreached, non-christian countries. 
+According to investigations from 2015, www.thetravelingteam.org, all church members around the globe gave in one year on average 1,7% of their income to churches. 2,9% of this money was used for mission inside their own countries and 0,3% for mission in unreached, non-christian countries. 
 
 However, the largest part, 96,8%, was used for building the local church, went mainly to salaries and buildings.
 
