@@ -8,9 +8,9 @@ image = "church and money.jpg"
 
 This is what we hear the critics say, while pointing at the large amounts of money collected by Christian ministries today.
 
-the”No, it’s not true”, we answer, believing to have a better understanding. ”It’s all about Jesus and the Good News and about saving people for eternity. It’s about mission. Of course, this costs money. The more money we give, the more people we can reach.”
+”No, it’s not true”, we answer, believing to have a better understanding. ”It’s all about Jesus and the Good News and about saving people for eternity. It’s about mission. Of course, this costs money. The more money we give, the more people we can reach.”
 
-In order to find out what is true, let’s look at some statistics. How is the money spent and what is being accomplished?
+In order to find out if this is true, let’s look at some statistics. How is the money spent and what is being accomplished?
 
 According to investigations from 2015,www.thetravelingteam.org, all church members around the globe gave in one year on average 1,7% of their income to churches. 2,9% of this money was used for mission inside their own countries and 0,3% for mission in unreached, non-christian countries. 
 
