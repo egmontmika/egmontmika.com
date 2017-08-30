@@ -2,6 +2,7 @@
 title = "Church Upside-up or Upside-down?"
 date = 2017-09-10T03:01:45Z
 image = "church upside-down.jpg"
+draft = "true"
 +++
 
 A car on its roof doesn’t make sense.
