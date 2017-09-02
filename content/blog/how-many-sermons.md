@@ -1,7 +1,7 @@
 +++
-title = "How Many Sermons Does It Take?"
+title = "How Many Sermons?"
 date = 2017-10-28T03:01:45Z
-image = "how many sermons does it take.jpg"
+image = "how many sermons.jpg"
 draft = "true"
 +++
 
