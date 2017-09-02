@@ -1,7 +1,7 @@
 +++
 title = "Are You Ready?"
 date = 2017-10-28T03:01:45Z
-image = ".jpg"
+image = "are you ready.jpg"
 draft = "true"
 +++
 
@@ -21,8 +21,8 @@ What they had learnt and seen was not all they could have learned if they had be
 
 Let's face it! Believing that more sermons will make you a better disciple maker is an illusion. In fact, it can be counterproductive. The more you listen, the less you may be willing to go out. 
 
-Sermons may give you the feeling of being on the right track. Or even better, to be right up front in what God is doing in our time. In reality, it may keep you from actually stepping out and doing what the sermons are supposed to equip you for.
+Sermons may give you the feeling of being on the right track. Or even better, to be right up front in what God is doing in our time. In reality, they may keep you from actually stepping out and doing what these sermons are supposed to equip you for.
 
-The very thing that is supposed to equip your for becoming fruitful disguises itself as something that keeps you where you are. It may give you some good spiritual entertainment, maybe better than much of the entertainment available out there.
+They may give you some good spiritual entertainment, maybe a better one than much of the entertainment available out there.
 
 Yet, it’s just that. Entertainment.
