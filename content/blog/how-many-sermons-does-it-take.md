@@ -1,5 +1,5 @@
 +++
-title = "How Many Sermons Do You Need?"
+title = "How Many Sermons Does It Take?"
 date = 2017-10-28T03:01:45Z
 image = "how to start a church.jpg"
 draft = "true"
