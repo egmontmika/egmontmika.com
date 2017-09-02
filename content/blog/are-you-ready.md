@@ -25,4 +25,4 @@ Sermons may give you the feeling of being on the right track. Or even better, to
 
 They may give you some good spiritual entertainment, maybe a better one than much of the entertainment available out there.
 
-Yet, it’s just that. Entertainment.
+Yet, for you it’s just that. Entertainment.
