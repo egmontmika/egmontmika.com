@@ -7,7 +7,7 @@ draft = "true"
 
 Are you ready to make a disciple? 
 
-What would you need in order to be ready?
+And in case not, what would you need in order to be ready?
 
 Jesus trained his disciples for three and a half years. Then he sent them out. 
 
