@@ -1,8 +1,9 @@
 +++
 title = "How Many Sermons Do You Need?"
-date = 2017-09-1222T03:01:45Z
+date = 2017-10-28T03:01:45Z
 image = "how to start a church.jpg"
 draft = "true"
++++
 
 How many sermons does it take to make a disciple?
 
