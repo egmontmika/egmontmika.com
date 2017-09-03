@@ -7,7 +7,7 @@ draft = "true"
 
 Are you ready to make a disciple? 
 
-And in case your answer is "no", what would you need in order to become ready?
+In case your answer is "no", what would you need in order to become ready?
 
 Jesus trained his disciples for three and a half years. Then he sent them out. Where they fully educated then? - No. Did they master the skills of an evangelist or preacher or teacher? - No. 
 
