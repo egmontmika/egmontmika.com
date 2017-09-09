@@ -17,7 +17,7 @@ Admitted, that can take a life time. There will always be something more to lear
 
 How many sermons do you need in order to become a disciple maker?
 
-Probably none. Disciple makers are not made from the pulpit, and not in  classes. Sermons and classes won't take you there.
+Probably none. Also disciple makers are not made from the pulpit, and not in  classes. Sermons and classes won't take you there.
 
 You'll have to do it. Jump the leap.
 
