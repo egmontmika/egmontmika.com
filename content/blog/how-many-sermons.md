@@ -15,7 +15,7 @@ Modelling is not done from the pulpit, though, but in everyday life. By sharing 
 
 Taking action.
 
-Admitted, preparation can take a life time. There will always be something more to learn, more to understand and more to practice. But when is a disciple ready to reach out and make another disciple?
+Admitted, preparation can take a life time. There will always be something more to learn, more to understand and more to practice. Yet, when is a disciple ready to reach out and make another disciple?
 
 How many sermons do you need in order to become a disciple maker?
 
