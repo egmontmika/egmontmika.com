@@ -1,5 +1,5 @@
 +++
-title = "How Many Sermons?"
+title = "How Many Sermons Do You Need?"
 date = 2017-10-28T03:01:45Z
 image = "how many sermons.jpg"
 draft = "true"
@@ -13,12 +13,12 @@ Modelling is not done from the pulpit, but in everyday life. By sharing experien
 
 Admitted, that can take a life time. There will always be something more to learn, more to understand and more to practice. But when is a disciple ready to reach out and make another disciple?
 
-How many sermons does it take to make a disciple maker?
+How many sermons do you need in order to become a disciple maker?
 
-Probably none. Again, disciple makers are not made from the pulpit, and not by attending classes. But by doing it. By jumping the leap.
+Probably none. Disciple makers are not made from the pulpit, and not in  classes. Sermons and classes won't take you there.
 
-How about you?
+You'll have to do it. Jump the leap.
 
-If you have been a disciple of Jesus for a while, let’s say a year or two or three, you can do it. And if you still feel you need help, find someone who is engaged in this kind of work and ask that person, if you may join him or her for a while.
+If you have been a disciple of Jesus for a while, let’s say for a few months or a year or maybe even two, then you can do it. And if you still feel you need help, find someone who is engaged in this kind of work and ask that person, if you may join him or her for a while.
 
 Find such a person.
