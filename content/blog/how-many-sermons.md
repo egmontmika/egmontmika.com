@@ -7,7 +7,9 @@ draft = "true"
 
 How many sermons does it take to make a disciple?
 
-Probably one. Or maybe a few. The rest is modelling. 
+Probably one. 
+
+Or maybe a few. The rest is modelling. 
 
 Modelling is not done from the pulpit, though, but in everyday life. By sharing experiences, communicating kingdom values, demonstrating these values and explaining the hows and whys. Learning to listen to the Spirit and then follow. 
 
