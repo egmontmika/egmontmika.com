@@ -21,7 +21,7 @@ How many sermons do you need in order to become a disciple maker?
 
 Probably none. Also disciple makers are not made from the pulpit, and not in  classes. Sermons and classes won't take you there.
 
-You'll have to do it. Jump the leap.
+You'll just have to do it. Jump the leap.
 
 If you have been a disciple of Jesus for a while, let’s say for a few months or a year or maybe even two, then you can do it. And if you still feel you need help, find someone who is engaged in this kind of work and ask that person, if you may join him or her for a while.
 
