@@ -5,7 +5,7 @@ image = "how many sermons.jpg"
 draft = "true"
 +++
 
-How many sermons does it take to make a disciple?
+How many sermons does it take to become a disciple?
 
 Probably one. 
 
