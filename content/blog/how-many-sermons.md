@@ -11,13 +11,13 @@ Probably one.
 
 Or maybe a few. The rest is modelling. 
 
-Modelling is not done from the pulpit, though, but in everyday life. By sharing experiences, communicating kingdom values, demonstrating these values and explaining the hows and whys. Learning to listen to the Spirit and then follow. 
+Yet, modelling is not done from the pulpit, but in everyday life. By sharing experiences, communicating kingdom values, demonstrating these values and explaining the hows and whys. Learning to listen to the Spirit and then follow. 
 
-Taking action.
+By taking action.
 
-Admitted, preparation can take a life time. There will always be something more to learn, more to understand and more to practice. Yet, when is a disciple ready to reach out and make another disciple?
+Admitted, preparation can take a life time. There will always be something more to learn, more to understand and more to prepare. Yet, when is a disciple ready to reach out and make another disciple?
 
-How many sermons do you need in order to become a disciple maker?
+How many sermons does it take to make a disciple?
 
 Probably none. Also disciple makers are not made from the pulpit, and not in  classes. Sermons and classes won't take you there.
 
