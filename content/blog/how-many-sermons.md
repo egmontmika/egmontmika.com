@@ -23,6 +23,6 @@ Probably none. Again, disciple makers are not made from the pulpit, and not in  
 
 You'll just have to do it. Jump the leap.
 
-If you have been a disciple of Jesus for a while, let’s say for a few months or a year or maybe even two, then you can do it. And if you still feel you need help, find someone who is engaged in this kind of work and ask that person, if you may join him or her for a while.
+If you have been a disciple of Jesus for a while, let’s say for a few months or a year or maybe even two, then you can do it. And if you still feel you need help, find someone who is engaged in this kind of work and ask that person, if you may join him or her for a while. In order to turn the corner.
 
-Find such a person.
+That would be a start.
