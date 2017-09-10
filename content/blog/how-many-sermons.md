@@ -19,7 +19,7 @@ Admitted, preparation can take a life time. There will always be something more 
 
 How many sermons does it take to make a disciple?
 
-Probably none. Also disciple makers are not made from the pulpit, and not in  classes. Sermons and classes won't take you there.
+Probably none. Again, disciple makers are not made from the pulpit, and not in  classes. Sermons and classes won't take you there.
 
 You'll just have to do it. Jump the leap.
 
