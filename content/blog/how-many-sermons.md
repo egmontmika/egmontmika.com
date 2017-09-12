@@ -16,7 +16,7 @@ By taking action.
 
 Admitted, preparation can take a life time. There will always be something more to learn, more to understand and more to prepare. Yet, when is a disciple ready to reach out and make another disciple?
 
-How many sermons does it take to make a disciple?
+How many sermons does it take a disciple to make another disciple?
 
 Probably none. Again, disciple makers are not made from the pulpit, and not in classes. Speeches and curriculums won't take you there.
 
