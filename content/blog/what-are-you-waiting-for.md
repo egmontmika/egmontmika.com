@@ -19,7 +19,7 @@ Still, Jesus sent them out.
 
 And whatever they were lacking, the Holy Spirit provided. 
 
-What they had learned and seen was not all they could have learned if they had stayed with Jesus for another decade, but it was good enough for a start.
+What they had learned by being with Jesus was not all they could have learned if they had stayed with him for another decade, but it was good enough for a start.
 
 What the Spirit needed in order to work through these people was not more education, but their willingness.
 
