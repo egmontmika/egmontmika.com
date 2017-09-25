@@ -9,7 +9,9 @@ Are you ready to make a disciple?
 
 In case your answer is "no" or "not yet", what would you still need?
 
-Jesus trained his disciples for only three and a half years, then sent them out. Where they fully educated then? - No. 
+Jesus trained his disciples for only three and a half years, then sent them out. 
+
+Where they fully educated then? - No. 
 
 Did they master the skills of an evangelist or preacher or teacher? - Probably not. 
 
