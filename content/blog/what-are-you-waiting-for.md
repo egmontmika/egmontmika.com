@@ -31,7 +31,7 @@ Let's face it! Believing that spending more time in church services will make yo
 
 Is that so? 
 
-If not, What are you waiting for?
+If not, what are you waiting for?
 
 
 
