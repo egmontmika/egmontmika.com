@@ -21,7 +21,7 @@ Still, Jesus sent them out.
 
 And whatever they were lacking, the Holy Spirit provided. 
 
-What they had learned by being with Jesus was not all they could have learned if they had stayed with him for another decade, but it was good enough for a start.
+What they had learned by being with Jesus was not all they could have learned, if they had stayed with him for another decade, but it was good enough for a start.
 
 What the Spirit needed in order to work through these people was not more education, but their willingness.
 
@@ -29,7 +29,9 @@ Are you willing?
 
 Let's face it! Believing that spending more time in church services will make you a better disciple maker is an illusion. In fact, it can be counterproductive. The longer you wait, the more you may want to stay. The less you may be willing to go out.
 
-What are you waiting for?
+Is that so? 
+
+If not, What are you waiting for?
 
 
 
