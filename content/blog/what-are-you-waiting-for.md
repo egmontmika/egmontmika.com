@@ -1,7 +1,7 @@
 +++
 title = "What Are You Waiting For?"
 date = 2017-10-28T03:01:45Z
-image = "what are you waiting for.jpg"
+image = "what are you waiting for2.jpg"
 draft = "true"
 +++
 
