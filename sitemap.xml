@@ -2,6 +2,11 @@
 <urlset xmlns="http://www.sitemaps.org/schemas/sitemap/0.9">
   
   <url>
+    <loc>http://egmontmika.com/blog/what-are-you-waiting-for/</loc>
+    <lastmod>2017-10-28T03:01:45+00:00</lastmod>
+  </url>
+  
+  <url>
     <loc>http://egmontmika.com/blog/how-many-sermons/</loc>
     <lastmod>2017-09-12T03:01:45+00:00</lastmod>
   </url>
@@ -422,13 +427,13 @@
   
   <url>
     <loc>http://egmontmika.com/blog/</loc>
-    <lastmod>2017-09-12T03:01:45+00:00</lastmod>
+    <lastmod>2017-10-28T03:01:45+00:00</lastmod>
     <priority>0</priority>
   </url>
   
   <url>
     <loc>http://egmontmika.com/</loc>
-    <lastmod>2017-09-12T03:01:45+00:00</lastmod>
+    <lastmod>2017-10-28T03:01:45+00:00</lastmod>
     <priority>0</priority>
   </url>
   
