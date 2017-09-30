@@ -4,7 +4,7 @@ date = 2017-10-28T03:01:45Z
 image = "the power of a long-term commitment.jpg"
 draft = "true"
 +++
-Did you ever have a great idea and tried to make it work? 
+Have you ever have a great idea and tried to make it work? 
 
 Tried to change something to the better or to accomplish something important and really worth the effort? Something that would improve your life or the world around you significantly? 
 
