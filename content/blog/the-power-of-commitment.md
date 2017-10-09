@@ -2,7 +2,6 @@
 title = "The Power of Long-Term Commitment"
 date = 2017-10-11T03:01:45Z
 image = "the power of long-term commitment.jpg"
-draft = "true"
 +++
 Have you ever had a great idea? And tried to make it work? 
 
@@ -24,6 +23,6 @@ However, if you want to make it work you will have to be prepared to pay the pri
 
 Then, try again and endure.
 
-It's consistent and persistent effort that leads to success. Great results aren’t accomplished by a try. 
+It's consistent and persistent effort that leads to success. Great results aren’t accomplished by one try. 
 
 But a long-term commitment. 
