@@ -19,7 +19,7 @@ There are no shadows in the Kingdom. Everything is in the light.
 
 Everything is sanctified.
 
-One day, when you will look back and sum up your life, not the highlights will stand out as most valuable,but your daily work. Your habits. Your relationships. Your faithfulness.
+One day, when you will look back and sum up your life, not the highlights will stand out as most valuable, but your daily work. Your habits. Your relationships. Your faithfulness.
 
 Your daily prayers.
 Your daily love.
