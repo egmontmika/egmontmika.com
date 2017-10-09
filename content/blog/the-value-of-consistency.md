@@ -11,15 +11,15 @@ Sunday worship services may leave the impression that living the Christian life 
 
 Nothing could be more wrong than that.
 
-Rather, it’s the other way around. The essential life as a disciple of Jesus is the life in between the highlights. It’s your daily walk with Jesus. Every day, every hour, every minute. Seven days a week, twentyfour hours a day.
+Rather, it’s the other way around. The substantial life as a disciple of Jesus is the life in between the highlights. It’s your daily walk with Jesus. Every day, every hour, every minute. Seven days a week, twentyfour hours a day.
 
 No part of your life is too low, not to be included. There is nothing to hide, nothing to be ashamed of, nothing unworthy; everything is under His Lordship. 
 
-There are no shadows in the Kingdom. Everything in the light. 
+There are no shadows in the Kingdom. Everything is in the light. 
 
-Everything sanctified.
+Everything is sanctified.
 
-One day, when you will look back and sum up your life, not the highlights will stand out as most important, but your daily work. Your habits. Your relationships. Your faithfulness.
+One day, when you will look back and sum up your life, not the highlights will stand out as most valuable,but your daily work. Your habits. Your relationships. Your faithfulness.
 
 Your daily prayers.
 Your daily love.
