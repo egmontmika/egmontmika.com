@@ -12,4 +12,4 @@ The higher your purpose, the higher the cost.
 
 Jesus was controversial. And he paid the price for what he stood up.
 
-As his follower, you hardly get away without it.
+As his follower, you hardly get away without.
