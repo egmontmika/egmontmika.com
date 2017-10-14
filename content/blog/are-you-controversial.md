@@ -4,7 +4,7 @@ date = 2017-11-22T03:01:45Z
 image = "are you controversial.jpg"
 draft = "true"
 +++
-It's not a sin to be controversial.
+It's no sin to be controversial.
 
 Anyone standing up for what is right will meet opposition. The higher your position, the worse it can get. The stronger the rejection. The more dangerous the consequences.
 
