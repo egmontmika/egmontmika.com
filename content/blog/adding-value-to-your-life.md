@@ -11,7 +11,7 @@ Sunday worship services may leave the impression that living the Christian life 
 
 Nothing could be more wrong than that.
 
-Rather, it’s the other way around. Your valuable life is the life you live in between the highlights. It’s your daily walk. Every day, every hour, every minute. Seven days a week, twentyfour hours a day.
+Rather, it’s the other way around. Your valuable life is the life you live in between the highlights. It’s your daily walk. Including every day, every hour, every minute.
 
 No part of your life is too low, not to be included. There is nothing to hide, nothing to be ashamed of, nothing unworthy. Everything counts.
 
