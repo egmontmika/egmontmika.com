@@ -13,7 +13,7 @@ Nothing could be more wrong than that.
 
 Rather, it’s the other way around. Your valuable life is the life you live in between the highlights. It’s your daily walk. Every day, every hour, every minute. Seven days a week, twentyfour hours a day.
 
-No part of your life is too low, not to be valuable. There is nothing to hide, nothing to be ashamed of, nothing unworthy. Everything is valuable.
+No part of your life is too low, not to be included. There is nothing to hide, nothing to be ashamed of, nothing unworthy. Everything is valuable.
 
 In the Kingdom of God, there are no shadows. Everything is in the light. Also those times when you feel sweaty and dirty from work. Exhausted, and maybe discouraged. And everything seems dark. Every minute is valuable.
 
