@@ -7,7 +7,7 @@ draft = "true"
 
 Life's value is not defined by the highlights.
 
-Sunday worship services may leave the impression that living the Christian life is a series of elegant meetings. Jumping from celebration to celebration. Like a butterfly, from flower to flower. Looking for the next sensation. For the next spiritual experience.
+Sunday worship services may leave the impression that living the Christian life is a series of elegant meetings. Jumping from celebration to celebration. Like a butterfly, from flower to flower. Looking for the next sensation. For the next spiritual experience. With a smile on your face.
 
 Nothing could be more wrong than that.
 
@@ -17,7 +17,7 @@ No part of your life is too low, not to be included. There is nothing to hide, n
 
 Everything is valuable.
 
-In the Kingdom of God, there are no shadows. Everything is in His light. Also those times when you feel sweaty and dirty from work. Exhausted, and maybe discouraged. And everything seems dark. Still, every minute is valuable.
+In the Kingdom of God, there are no shadows. Everything is in His light. Also those times when you feel sweaty and dirty from work. Exhausted, and maybe discouraged, when everything seems dark. Still, every minute is valuable.
 
 YOU are valuable.
 
