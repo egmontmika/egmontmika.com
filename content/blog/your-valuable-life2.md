@@ -2,7 +2,6 @@
 title = "Your Valuable Life"
 date = 2017-10-25T03:01:45Z
 image = "your valuable life.jpg"
-draft = "true"
 +++
 
 Life's value is not defined by the highlights.
@@ -23,8 +22,7 @@ YOU are valuable.
 
 One day, when you will look back and sum up your life, it will not be the highlights that added most value to your life, but your relationships. Your daily habits and your daily work. 
 
-The results of your faithfulness and consistency. 
+The fruit of your faithfulness and consistency. 
 
 And your love.
 
-What you did for others.
