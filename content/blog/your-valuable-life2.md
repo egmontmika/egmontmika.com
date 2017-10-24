@@ -6,7 +6,7 @@ image = "your valuable life.jpg"
 
 Life's value is not defined by the highlights.
 
-Sunday worship services may leave the impression that living the Christian life is a series of elegant meetings. Jumping from celebration to celebration. Like a butterfly, from flower to flower. Looking for the next sensation, the next spiritual experience. With a smile on your face.
+Sunday worship services may leave the impression that living the Christian life is a series of elegant meetings. Jumping from celebration to celebration. Like a butterfly, from flower to flower. Looking for the next sensation, the next spiritual experience. With lots of smiles.
 
 Nothing could be more wrong than that.
 
