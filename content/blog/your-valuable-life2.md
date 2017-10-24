@@ -16,7 +16,7 @@ No part of your life is too low, not to be noticed. There is nothing to hide, no
 
 Everything is valuable.
 
-In the Kingdom of God, there are no shadows. Everything is in His light. Also those moments when you feel sweaty and dirty from work. Exhausted and discouraged. When you are sick or people have betrayed you and everything seems dark. Still, you are in His light.
+In the Kingdom of God, there are no shadows. Everything is in His light. Also those moments when you come home from work feeling sweaty and dirty. Exhausted or maybe even discouraged. When you are sick or people have betrayed you and everything seems dark. Still, you are in His light.
 
 YOU are valuable.
 
