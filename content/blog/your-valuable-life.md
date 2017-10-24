@@ -1,7 +1,7 @@
 +++
-title = "Adding Value to Your Life"
+title = "Your Valuable Life"
 date = 2017-10-25T03:01:45Z
-image = "adding value to your life.jpg"
+image = "your valuable life.jpg"
 draft = "true"
 +++
 
