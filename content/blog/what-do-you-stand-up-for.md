@@ -1,27 +1,30 @@
 +++
-title = "Stand Up - Speak Up - Take Action"
+title = "Stand Up - Speak Up - Take Action!"
 date = "2017-11-08T06:39:19Z"
 image = "what do you stand up for.jpg"
 draft = "true"
 +++
-Have you ever felt like this? 
 
-You know exactly what would be right in a given situation. What could be done in order to change that situation to the better. And you also know that you are the one who could make it happen.
+You know exactly what to do now. 
+
+What would be the right. What would turn the situation to the better. And you that you could make it happen.
 
 Yet, you hesitate.
 
-What is it that keeps you from doing it? 
+Why do you back off? 
 
-Is it convenience? Or complacency?  
+Is it because of convenience? Or complacency? Or fear? 
 
-Or is it fear? 
-
-The fear of getting opposed, rejected, intimidated. The fear of failure and shame. Or the fear of negative consequences.
+The fear of getting opposed, rejected, intimidated. The fear of failure? Of shame? Or the fear of negative consequences.
 
 When we pursue our purpose, we overcome. 
 
-When our purpose is bigger than ourselves, something higher than our personal striving for comfort, security and acceptance, then convenience and fear become irrelevant. You care and take courage. 
+When our purpose is bigger than ourselves, something higher than our personal striving for comfort, security and acceptance, then convenience and fear become irrelevant. We grow beyond the resistance and get envolved. We care enough to pay the price.
 
-You speak up - stand up - take action.
+And take courage. 
 
-Jesus gave you that purpose.
+We speak up, stand up, and take action.
+
+Martin Luther King Jr. had such a purpose. Jesus had. Paul had.
+
+You have.
