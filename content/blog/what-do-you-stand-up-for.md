@@ -5,9 +5,9 @@ image = "what do you stand up for.jpg"
 draft = "true"
 +++
 
-You know exactly what to do now. 
+You know exactly what to do. 
 
-What would be the right. What would turn the situation to the better. And you that you could make it happen.
+What would be the right action in order to turn the situation. And you know you could do it.
 
 Yet, you hesitate.
 
@@ -15,16 +15,16 @@ Why do you back off?
 
 Is it because of convenience? Or complacency? Or fear? 
 
-The fear of getting opposed, rejected, intimidated. The fear of failure? Of shame? Or the fear of negative consequences.
+The fear of getting opposed, rejected, intimidated? The fear of failure? Of shame? Or of having to face the negative consequences?
 
-When we pursue our purpose, we overcome. 
+How can we overcome that resistance?
 
-When our purpose is bigger than ourselves, something higher than our personal striving for comfort, security and acceptance, then convenience and fear become irrelevant. We grow beyond the resistance and get envolved. We care enough to pay the price.
+It's when we pursue our purpose. When our purpose is greater than ourselves, something higher and stronger than our personal pursuit of comfort, security and acceptance. Then convenience and fear become irrelevant. We grow beyond our resistance. We take courage and get envolved. 
 
-And take courage. 
+We care enough to pay the price.
 
 We speak up, stand up, and take action.
 
-Martin Luther King Jr. had such a purpose. Jesus had. Paul had.
+Jesus had such a purpose.
 
 You have.
