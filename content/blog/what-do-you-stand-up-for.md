@@ -5,9 +5,9 @@ image = "what do you stand up for.jpg"
 draft = "true"
 +++
 
-You know exactly what to do. 
+You know exactly what would be right. 
 
-What would be the right action in order to turn the situation. And you know you could do it.
+You know what needs to be done in order to turn the situation. And you could do it.
 
 Yet, you hesitate.
 
