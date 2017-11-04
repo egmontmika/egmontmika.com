@@ -25,6 +25,6 @@ We care enough to pay the price.
 
 We speak up, stand up, and take action.
 
-Jesus had such a purpose.
+Jesus had such a purpose. Paul of Tarsus had. Martin Luther King had.
 
 You have.
