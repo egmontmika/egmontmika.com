@@ -19,7 +19,7 @@ The fear of getting opposed, rejected, intimidated? The fear of failure? Of sham
 
 How can we overcome that resistance?
 
-It's when we pursue our purpose. When our purpose is greater than ourselves, something higher and stronger than our personal pursuit of comfort, security and acceptance. Then convenience and fear become irrelevant. We grow beyond our resistance. We take courage and get envolved. 
+It's when we pursue our purpose. When our purpose is greater than ourselves, something higher and stronger than our personal pursuit of comfort, security and acceptance. Then, convenience and fear become irrelevant. Then, we grow beyond our resistance. We take courage and get envolved. 
 
 We care enough to pay the price.
 
