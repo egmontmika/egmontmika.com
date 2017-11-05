@@ -5,7 +5,7 @@ image = "what do you stand up for.jpg"
 draft = "true"
 +++
 
-You know exactly what would be the right thing to do now. To change a situation to the better. To help, encourage, get involved. To invest your time, money and labour. To do good.
+You know exactly what would be the right thing to do now. To change a situation to the better. To help, encourage, do good.
 
 Yet, you hesitate.
 
