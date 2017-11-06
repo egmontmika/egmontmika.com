@@ -15,9 +15,9 @@ Is it because of convenience? Or complacency? Or doubt?
 
 Or because of the fear of being taken advantage of? Or because of the risks? The fear of failure? Would the price be too high?
 
-How can we overcome our resistance?
+How can we overcome our inner resistance?
 
-It's when we pursue a purpose. When our purpose is greater than ourselves, something higher and stronger than our personal pursuit of comfort, security and acceptance. Then, obstacles won't scare us.  Then, obstacles make us grow and overcome initial resistance. We take courage and get involved. 
+It's when we pursue a purpose. When our purpose is greater than ourselves, something higher and stronger than our desire of comfort, security and acceptance. Then, obstacles won't scare us.  Then, obstacles make us grow and overcome initial resistance. We take courage and get involved. 
 
 We care enough to pay the price.
 
