@@ -17,9 +17,9 @@ Or because of the fear of being taken advantage of? Or because of the risks? The
 
 How can we overcome our inner resistance?
 
-It's when we pursue a higher purpose. When our purpose is greater than ourselves, something stronger than our desire of comfort, security and acceptance. Then, obstacles won't scare us.  Instead, they make us grow and overcome initial resistance. We take courage and get involved. 
+It's when we pursue a higher purpose. When our purpose is greater than ourselves, something stronger than our desire of comfort, security and acceptance. Then, obstacles won't scare us.  Instead, they make us grow and overcome initial resistance. 
 
-We care enough to pay the price.
+When we care enough to be willing to pay the price, we take courage and get involved. 
 
 We speak up, stand up, and take action. 
 
@@ -27,4 +27,4 @@ Do good.
 
 Jesus had such a purpose. Paul of Tarsus had. Martin Luther King Jr. had.
 
-You have.
+We have.
