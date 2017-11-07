@@ -5,7 +5,7 @@ image = "what do you stand up for.jpg"
 draft = "true"
 +++
 
-Have you experiencd this?
+Have you experienced this?
 
 You know exactly what would be the right thing to do now. You could change a situation for the better. Help someone, improve an organisation, turn round a wicked situation.
 
