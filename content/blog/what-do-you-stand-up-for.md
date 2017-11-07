@@ -7,7 +7,7 @@ draft = "true"
 
 Have you experiencd this?
 
-You know exactly what would be the right thing to do, now. To change a situation for the better. To help, to encourage, to do good.
+You know exactly what would be the right thing to do now. You could change a situation for the better. Help someone, improve an organisation, turn round a wicked situation.
 
 Yet, you hesitate.
 
