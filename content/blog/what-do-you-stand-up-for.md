@@ -2,7 +2,6 @@
 title = "Stand Up - Speak Up - Take Action!"
 date = "2017-11-08T06:39:19Z"
 image = "what do you stand up for.jpg"
-draft = "true"
 +++
 
 Have you experienced this?
