@@ -5,7 +5,9 @@ image = "what do you stand up for.jpg"
 draft = "true"
 +++
 
-You know exactly what would be the right thing to do now. To change a situation to the better. To help, encourage, do good.
+Have you experiencd this?
+
+You know exactly what would be the right thing to do, now. To change a situation for the better. To help, to encourage, to do good.
 
 Yet, you hesitate.
 
@@ -17,13 +19,13 @@ Or because of the fear of being taken advantage of? Or because of the risks? The
 
 How can we overcome our inner resistance?
 
-It's when we pursue a higher purpose. When our purpose is greater than ourselves, something stronger than our desire of comfort, security and acceptance. Then, obstacles won't scare us.  Instead, they make us grow and overcome initial resistance. 
+It's when we pursue a higher purpose. When our purpose is greater than ourselves, something stronger than our desire for comfort, security, and acceptance. Then, obstacles won't scare us.  Instead, they make us grow and overcome initial resistance. 
 
 When we care enough to be willing to pay the price, we take courage and get involved. 
 
 We speak up, stand up, and take action. 
 
-Do good.
+We do good.
 
 Jesus had such a purpose. Paul of Tarsus had. Martin Luther King Jr. had.
 
