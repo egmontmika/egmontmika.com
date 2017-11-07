@@ -7,7 +7,7 @@ draft = "true"
 
 Have you experienced this?
 
-You know exactly what would be the right thing to do. Right now you could change a situation for the better. Help someone, improve an organisation, turn round a wicked situation.
+You know exactly what would be the right thing to do. Right now, you could change a situation for the better. Help someone, improve an organization, or turn a hopeless situation.
 
 Yet, you hesitate.
 
@@ -15,18 +15,18 @@ Why do you back off?
 
 Is it because of convenience? Or complacency? Or doubt? 
 
-Or because of the fear of being taken advantage of? Or because of the risks? The fear of failure? Would the price be too high?
+Or because of the fear of being taken advantage of? Or because of possible risks? The fear of failure? Would the price be too high?
 
 How can we overcome our inner resistance?
 
-It's when we pursue a higher purpose. When our purpose is greater than ourselves, something stronger than our desire for comfort, security, and acceptance. Then, obstacles won't scare us.  Instead, they make us grow and overcome initial resistance. 
+It's when we pursue a higher purpose. When our goal is greater and stronger than our desire for comfort, security, and acceptance. Then, obstacles won't scare us. Instead, they make us grow and overcome inner resistance. 
 
-When we care enough to be willing to pay the price, we take courage and get involved. 
+When we pursue an important cause and care enough to be willing to pay the price, we don't let anyone or anything scare us. We take courage and get involved. 
 
 We speak up, stand up, and take action. 
 
-We do good.
+Do good.
 
-Jesus had such a purpose. Paul of Tarsus had. Martin Luther King Jr. had.
+Jesus had such a purpose. Paul of Tarsus had. Martin Luther King Jr. had. Nelson Mandela had. Many others had.
 
-We have.
+As followers of Jesus, we have.
