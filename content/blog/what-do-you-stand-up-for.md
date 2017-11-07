@@ -27,6 +27,8 @@ We speak up, stand up, and take action.
 
 Do good.
 
-Jesus had such a purpose. Paul of Tarsus, Martin Luther King Jr., Mother Teresa and many others of his followers had and still have.
+Jesus had such a purpose. Paul of Tarsus, Martin Luther King Jr., Mother Teresa and many others of his followers had. 
+
+And still have.
 
 Like you and me.
