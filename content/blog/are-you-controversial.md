@@ -14,7 +14,7 @@ It seems an easier way to adapt, to conform, to be nice, trying to please as man
 
 Sadly, this is where many a church movement finally ended. This is the weakness of mainstream Christianity throughout the centuries. And it still is.
 
-When the salt loses its saltiness it’s not good for anything. 
+"When the salt loses its saltiness it’s not good for anything."
 
 Jesus was controversial. 
 
