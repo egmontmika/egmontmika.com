@@ -12,7 +12,7 @@ The higher your purpose, the higher the cost.
 
 It seems an easier way to adapt, to conform, to be nice, trying to please as many as possible. Follow the public opinion, being politically correct, getting socially accepted. 
 
-Sadly, this is where many a church movement finally ended. This is the weakness of mainstream Christianity throughout the centuries. And it still is.
+Sadly, this is where many a church movement finally ended. This has been the weakness of mainstream Christianity throughout the centuries. And it still is.
 
 "When the salt loses its saltiness it’s not good for anything."
 
