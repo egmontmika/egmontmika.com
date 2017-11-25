@@ -4,8 +4,6 @@ date = 2017-12-06T03:01:45Z
 image = "the power of long-term commitment.jpg"
 +++
 
-Listening Creative Prayer
-
 When you pray, who does most of the talking?
 
 You or the Lord?
@@ -16,7 +14,7 @@ God is looking for people who are eager to listen.
 
 He wants you to hear what He has to say and what He wants to do. He wants you to learn from him and connect with His plans and purposes. 
 
-And with His creative ways.
+And to become part of His creative ways.
 
 People who listen have switched their focus from ”I” and ”me” to ”You” and ”Your”. For you, this changes your prayer life radically. 
 
