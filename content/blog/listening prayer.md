@@ -1,7 +1,7 @@
 +++
 title = "Listening Prayer"
 date = 2017-12-06T03:01:45Z
-image = "the power of long-term commitment.jpg"
+image = "listening prayer.JPG"
 +++
 
 When you pray, who does most of the talking?
@@ -14,16 +14,16 @@ God is looking for people who are eager to listen.
 
 He wants you to hear what He has to say and what He wants to do. He wants you to learn from him and connect with His plans and purposes. 
 
-And become part of His creative ways.
+And become part of His way.
 
 People who listen have switched their focus from ”I” and ”me” to ”You” and ”Your”. 
 
 This changes your prayer radically. 
 
-Now you see your own life and everyone around you in a new light. You see from His perspective and what He wants to do. And you see your part in it.
+Now you see your own life and everyone around you in a new light. You see from His perspective, what He wants to do. And you see your part in it.
 
 As a result, your long prayer talks will get shorter and shorter and will finally be reduced to a minimum, while the time you spend listening to Him will extend all the more.
 
-After listening, God’s agenda is yours.
+After listening, God’s way is yours.
 
-And your agenda is His. 
+And your way is His. 
