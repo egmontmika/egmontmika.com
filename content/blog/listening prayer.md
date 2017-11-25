@@ -18,9 +18,9 @@ And become part of His creative ways.
 
 People who listen have switched their focus from ”I” and ”me” to ”You” and ”Your”. 
 
-This changes your prayer life radically. 
+This changes your prayer radically. 
 
-Now you see your own life and everyone around you in a new light. You see from His perspective. And you see what He wants to do.
+Now you see your own life and everyone around you in a new light. You see from His perspective and what He wants to do. And you see your part in it.
 
 As a result, your long prayer talks will get shorter and shorter and will finally be reduced to a minimum, while the time you spend listening to Him will extend all the more.
 
