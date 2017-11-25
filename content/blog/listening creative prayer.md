@@ -1,5 +1,5 @@
 +++
-title = "Listening, Creative Prayer"
+title = "Listening Prayer"
 date = 2017-12-06T03:01:45Z
 image = "the power of long-term commitment.jpg"
 +++
@@ -24,10 +24,6 @@ Now you see your own life and everyone around you in a new light. You see from H
 
 As a result, your long prayer talks will get shorter and shorter and will finally be reduced to a minimum, while the time you spend listening to Him will extend all the more.
 
-After listening, God’s agenda is yours, and your agenda is the same as God’s. 
+After listening, God’s agenda is yours.
 
-Through His Spirit you can see what He wants to do and you can speak it out prophetically. Most probably, you also know your first step towards that goal, and you take it.
-
-This is the way your listening prayer becomes creative, in the sense that it actually creates something. God is the one who creates, yet, he does it through you, through the words he gave you to speak out and the actions you take according to these words. 
-
-Along the way God makes it happen.
+And your agenda is His. 
