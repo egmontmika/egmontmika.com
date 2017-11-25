@@ -24,6 +24,6 @@ Now you see your own life and everyone around you in a new light. You see from H
 
 As a result, your long prayer talks will get shorter and shorter and will finally be reduced to a minimum, while the time you spend listening to Him will extend all the more.
 
-After listening, God’s way is yours.
+After listening, God’s way has become yours.
 
 And your way is His. 
