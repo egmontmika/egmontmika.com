@@ -19,7 +19,7 @@ God is looking for people who are eager to listen.
 
 He wants you to hear what He has to say and what He wants to do. He wants you to learn from Him and connect with His plans and purposes. 
 
-And become part of His way.
+And become part of His ways.
 
 People who listen have switched their focus from ”I” and ”me” to ”You” and ”Your”. 
 
