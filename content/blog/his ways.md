@@ -1,5 +1,5 @@
 +++
-title = "His Way."
+title = "His Ways."
 date = 2017-12-06T03:01:45Z
 image = "listening prayer.JPG"
 draft = "true"
@@ -25,7 +25,7 @@ People who listen have switched their focus from ”I” and ”me” to ”You�
 
 This changes your prayer radically. 
 
-Now you see your own life and everyone around you in a new light. You look at them from His perspective, and you see what He wants to do and you can see your part in it.
+Now you see your own life and everyone around you in a new light. You look at them from His point of view, and you see what He wants to do and your part in it.
 
 As a result, your long prayer talks will get shorter and shorter and will finally be reduced to a minimum, while the time you spend listening to Him will extend all the more.
 
