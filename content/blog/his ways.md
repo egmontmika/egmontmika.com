@@ -17,7 +17,7 @@ Depending on your focus you either mostly talk or mostly listen.
 
 God is looking for people who are eager to listen. 
 
-He wants you to hear what He has to say and what He wants to do. He wants you to learn from Him and connect with His plans and purposes. 
+He wants you to hear what He has to say and what He wants to do. He wants you to learn from Him and connect with His plans and His purposes. 
 
 And become part of His ways.
 
@@ -29,6 +29,6 @@ Now you see your own life and everyone around you in a new light. In His light. 
 
 As a result, your long prayer talks will get shorter and shorter and will finally be reduced to a minimum, while the time you spend listening to Him will extend all the more.
 
-After listening, God’s ways have become yours.
+When listening, God’s ways have become yours.
 
 And your way is His. 
