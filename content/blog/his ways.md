@@ -12,7 +12,7 @@ Your answer will depend on where your focus is. Whether it is on yourself and yo
 
 On your ways or on His. 
 
-Depending on your focus you either mostly talk or mostly listen. 
+Depending on your focus you mostly either talk or listen. 
 
 God is looking for people who are eager to listen. 
 
