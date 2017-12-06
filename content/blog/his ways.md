@@ -1,8 +1,7 @@
 +++
-title = "His Ways."
+title = "Your Ways and His Ways"
 date = 2017-12-06T03:01:45Z
 image = "his ways.JPG"
-draft = "true"
 +++
 
 When you pray, who does most of the talking?
@@ -11,7 +10,7 @@ You or the Lord?
 
 Your answer will depend on where your focus is. Whether it is on yourself and your problems and desires, or on Him and His concerns. 
 
-On His ways or on yours. 
+On your ways or on His. 
 
 Depending on your focus you either mostly talk or mostly listen. 
 
@@ -29,6 +28,6 @@ Now you see your own life and everyone around you in a new light. In His light. 
 
 As a result, your long prayer talks will get shorter and shorter and will finally be reduced to a minimum, while the time you spend listening to Him will extend all the more.
 
-When listening, God’s ways have become yours.
+When listening, God’s ways become yours.
 
-And your way is His. 
+And your ways become His. 
