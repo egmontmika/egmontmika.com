@@ -5,32 +5,34 @@ image = "reconsidering church.jpg"
 +++
 The status quo of the institutionalized church is powerful indeed.
 
-And we try to keep it alive by small improvements here and there, fancier equipment, trendier arrangements, and popular speakers. We add layers, patches, and small improvisations, all to save something we don't want to reconsider.
+And we try to keep it alive by small improvements here and there, fancier equipment, trendier arrangements, and popular speakers. We add layers, patches, and small improvisations. Try to be modern.
 
-Yet, everything happens within the given institutional framework. 
+All to save something we don't want to reconsider.
 
-We hardly question its basic structure, i. e., the institutional system, including constitutions, elections, offices, fundraising, buildings, and programs. And its division into clergy/professionals and laity.
+We hardly question its basic structure, i. e., the institutional system, including constitutions, elections, offices, fundraising, buildings, and programs. Its division into clergy/professionals and laity.
 
-If we could start all over again and could design something that actually would reflect the Kingdom of Heaven as proclaimed and put into practice by Jesus and the first century communities of disciples, what would we consider?
+And its politics.
 
-Here are some suggestions:
+If we could start all over again and design something that actually would reflect the Kingdom of Heaven as proclaimed and put into practice by Jesus and the first century communities of disciples, what would we consider?
 
-*Mission*
+Here follow some suggestions:
 
-- The mission of Jesus as the ultimate purpose, to seek and save the lost and to teach and train them as disciples, in order to go out and do the same.
+***Purpose***
 
-*Community*
+- The mission of Jesus as the church's ultimate purpose, to seek and save the lost. To reconcile them and to teach and train them as disciples, in order to send them out and do the same with others.
 
-- The overall character of church community as a family, not as an institution, with extended families and their homes as the basic units
+***Community***
 
-- The spontaneous multiplication of these family communities as a viral movement, not as a denomination
-
-*Leadership*
+- Community, not as an institution, but as a family.
+- Extended families and their homes as the basic units of the church in a city.
+- Not the building of a denomination, but the continuous multiplication of these family communities as a viral movement.
+ 
+***Leadership***
 
 - Spirit-filled and Spirit appointed leadership
 - The general priesthood of all disciples
 
-*Practice*
+***Practice***
 
 - The proclamation and demonstration of God’s kingdom in everyday life
 - Seeking and saving the lost and training them as disciples on a personal level
@@ -40,6 +42,7 @@ Here are some suggestions:
 No matter, whether following a more traditional hierarchical or a more democratic system, 
 institutional churches easily fall into the trap of worldly management and business behavior.
 
-Therefore, let us from time to time consider the original assignment and, whenever there is an opportunity, take the chance to start all over again. 
+Therefore, let us from time to time consider the original assignment and, whenever there is an opportunity, take the chance to break out of a misguiding system.
 
-And do it better. 
+And start all over again. 
+ 
