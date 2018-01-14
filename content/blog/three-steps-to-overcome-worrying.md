@@ -2,7 +2,6 @@
 title = "Three Steps to Overcome Worrying"
 date = 2018-01-15T03:01:45Z
 image = "dont worry.jpg"
-draft = "true"
 +++
 
 Worrying is NOT a virtue.
