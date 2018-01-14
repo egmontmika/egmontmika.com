@@ -35,4 +35,4 @@ Worrying is worthless. It doesn't change anything for the better.
 
 However, to take action and to trust God is wise. 
 
-It’s practicing your faith.
+This is practicing your faith.
