@@ -9,15 +9,17 @@ Worrying is NOT a virtue.
 
 On the contrary, it’s absolutely destructive. It’s a poison.
 
-Worrying obscures your faith, weakens your strength, takes away your initiative and creativity, and steals your joy. 
+Worrying obscures your faith, weakens your strength, takes away your initiative, and quenches your creativity. 
+
+It steals your joy. 
 
 Worrying breaks you down spiritually, mentally and physically. And it keeps you from doing your work. 
 
 It keeps you from living your life.
 
-It’s easy to make people and circumstances responsible. Yet, they are not the producers. Worry starts with a fearful thought in our own mind. The fear of things to get worse or of something dreadful to happen. However, it has not happened yet, and chances are it will never happen.
+It’s easy to make people and circumstances responsible for your worries. Yet, they are not the producers. Worrying starts with a fearful thought in our own mind. With fearing things to get worse or something dreadful to happen. However, these things have not happened yet, and chances are, they will never happen.
 
-Worry is a product of our mind.
+Worrying is a product of our mind.
 
 Outside of us, this fearful thought does not even exist, yet, to us it’s real. And by entertaining it we let it slowly break down our spiritual and mental health, with possible symptoms even in our physical body.
 
@@ -33,4 +35,4 @@ Worrying is worthless. It doesn't change anything for the better.
 
 Not to worry, however, is wise. 
 
-It’s practicing your faith.
+It’s practicing our faith.
