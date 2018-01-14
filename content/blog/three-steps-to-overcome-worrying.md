@@ -29,10 +29,10 @@ How can we get rid of it? Here are three steps:
 - Then, do whatever is possible for you to avoid whatever it is you fear.
 - Finally, focus on a better and higher goal and trust God that there will be a solution, in case things get worse.
 
-Jesus said, Do not worry! Seek first God’s kingdom! He sternly commanded his disciples not to fear and not to worry. Instead, he prompted them to believe in God. 
+Jesus said, Do not worry! Seek first God’s kingdom! He sternly commanded his disciples not to fear and not to worry. Instead, he prompted them to first prioritise God's kingdom. 
 
 Worrying is worthless. It doesn't change anything for the better. 
 
-However, to take action and to trust, is wise. 
+However, to take action and to trust God is wise. 
 
 It’s practicing your faith.
