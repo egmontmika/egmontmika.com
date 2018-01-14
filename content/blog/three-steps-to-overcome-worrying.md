@@ -33,6 +33,6 @@ Jesus said, Do not worry! Seek first God’s kingdom! He sternly commanded his d
 
 Worrying is worthless. It doesn't change anything for the better. 
 
-Not to worry, however, is wise. 
+However, to take action and to trust, is wise. 
 
 It’s practicing your faith.
