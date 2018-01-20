@@ -2,6 +2,7 @@
 title = "The Art of Enjoying the Uncomfortable"
 date = 2018-01-30T03:01:45Z
 image = "dont worry.jpg"
+draft = "true"
 +++
 Progress and comfort don’t match.
 
