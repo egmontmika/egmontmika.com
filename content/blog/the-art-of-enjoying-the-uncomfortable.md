@@ -20,10 +20,10 @@ Jesus never promised his disciples a comfortable life, yet, he expected them to 
 
 Is this too hard?
 
-No, it isn’t. Not for those who have made up their minds. They are looking forward to their success and consider it worthwhile all the trouble. They know that it makes them achieve more than they ever dreamed possible.
+No, it isn’t. Not for those who have made up their minds. They are looking forward to their success and consider it worthwhile the trouble. They know that it makes them achieve more than they ever dreamed possible.
 
-They have learned to take advantage of the uncomfortable and progress.
+They have learned to take advantage of the uncomfortable and make progress.
 
-And to enjoy it.
+And they enjoy it.
 
 This is the art of enjoying the uncomfortable.
