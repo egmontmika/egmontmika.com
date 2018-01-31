@@ -1,6 +1,6 @@
 +++
 title = "The Art of Enjoying the Uncomfortable"
-date = 2018-01-30T03:01:45Z
+date = 2018-01-31T03:01:45Z
 image = "the art of enjoying the uncomfortable.jpg"
 draft = "true"
 +++
@@ -10,20 +10,18 @@ While not everything that is uncomfortable automatically will give you progress,
 
 Performance spikes when we’re doing something out of our norm.
 
-Throughout Scripture, we find that following God’s call and at the same time striving for a comfortable life seem to contradict each other. Typically, responding to a call is connected with the requirement of stepping out and leaving. Leaving your family and friends, your familiar environment, and your securities. Changing your preferences and habits.
+This is not only true for sports, but probably for all areas of life, for instance, our spiritual life.
 
-The act of stepping outside our bubble is not only vital to our success, but also to our well being and our ability to grow as individuals. 
+Throughout Scripture, we find that following God’s call and striving for a comfortable life seem to contradict each other. Typically, responding to his call is associated with the requirement of stepping out and leaving. Leaving your family and friends, your familiar environment, and your securities. Changing some of your dear preferences and habits.
 
-It's vital to our spiritual development.
+Jesus never promised his disciples a comfortable life, yet, he expected them to be ”fruitful”.  For those who wanted to follow him, he pointed out what they could expect: inconveniences, uncertainty, mockery, hatred, and persecution.
 
-Jesus never promised his disciples a comfortable life, yet, he expected them to be ”fruitful”.  For those who wanted to follow him, he pointed out what they could expect: inconveniences, uncertainty, hatred, and persecution.
+Is this too much to expect?
 
-Is this too hard?
+It probably is, but not for those who have made up their minds. They are looking forward to their goal and consider it worthwhile the trouble. They know that hardship makes them achieve more than they ever dreamed possible.
 
-No, it isn’t. Not for those who have made up their minds. They are looking forward to their success and consider it worthwhile the trouble. They know that it makes them achieve more than they ever dreamed possible.
-
-They have learned to take advantage of the uncomfortable and make progress.
+They have learned to take advantage of the uncomfortable.
 
 And they enjoy it.
 
-This is the art of enjoying the uncomfortable.
+They have learned the art of enjoying the uncomfortable.
