@@ -22,5 +22,3 @@ It probably is, but not for those who have made up their minds. They are looking
 They have learned to take advantage of the uncomfortable.
 
 And they enjoy it.
-
-They have learned the art of enjoying the uncomfortable.
