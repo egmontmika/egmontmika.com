@@ -10,7 +10,7 @@ We are talking about the kind of peace that endures everything. That is stronger
 
 No matter the damage.
 
-Holding onto things hurts you more than anything else. Leaves you with a far greater damage than anything people can do to you. Hatred breaks you down, kills you slowly.
+Holding onto things hurts you more than anything else. Leaves you with a far greater damage than anything people can do to you. Your ow hatred breaks you down, kills you slowly.
 
 If you want peace, stop meditating on what happened. Stop accusing. Stop seeking revenge. Stop lamenting. Stop feeling sorry for yourself. 
 
