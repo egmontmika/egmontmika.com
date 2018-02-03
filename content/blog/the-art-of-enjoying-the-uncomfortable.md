@@ -9,7 +9,7 @@ While not everything that is uncomfortable automatically will give you progress,
 
 Performance spikes when we’re doing something out of our norm.
 
-This is not only true for sports, but probably for all areas of life, for instance, our spiritual life.
+This is not only true for sports but probably for all areas of life, for instance, our spiritual life.
 
 Throughout Scripture, we find that following God’s call and striving for a comfortable life seem to contradict each other. Typically, responding to his call is associated with the requirement of stepping out and leaving. Leaving your family and friends, your familiar environment, and your securities. Changing some of your dear preferences and habits.
 
