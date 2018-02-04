@@ -19,20 +19,18 @@ Just say, Stop!
 
 It’s a matter of decision. Anyone can do it. You can do it, no matter what your feelings are at the moment. Once you take that decision, your feelings will follow.
 
-Call the person by name and shout it out loudly. 
+Call the person by name and shout it out loudly:
 
-I don’t accuse you anymore! I forgive you! You are free!
+"I don’t accuse you anymore! I forgive you! You are free!"
 
 Then confess your own guilt. (Yes, there is guilt with you, as well.) Again, do it loudly. And be sure, God will hear you. 
 
 And forgive you.
 
-However, there is one more step. He not only wants to heal your memories and your emotions, but give you peace with Him. He wants to reconcile you with Himself.
+However, there is one more step. He not only wants to heal your memories and your emotions, but give you peace with Him. He wants to reconcile you with Himself. You can ask Him for that and He will give you.
 
 If forgiveness is the door to inner peace, reconciliation with God is its foundation. Reconciliation is redemption. There is no better foundation for your life than the knowledge of being forgiven, accepted and loved by God. This gives you the quality of peace that is able to overcomes all fear, even the fear of death.
 
 Peace with God will last for the rest of your life, and after that, all the way into eternity.
 
 So precious! 
-
-It's for you.
