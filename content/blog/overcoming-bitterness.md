@@ -23,11 +23,12 @@ It starts with a decision. Anyone can do it. You can do it, no matter whose guil
 
 The next step is to forgive. 
 
-Yes, I mean it. That's the hardest part. You forgive, although the people who have done wrong against you never regretted what they did, far less apologized. And don't just think "I forgive you", but speak it out loud so you can hear your own voice. Even better, let also someone else hear you say it. 
+Yes, I mean it. That's the hardest part. You forgive, although the people who harmed you never regretted what they did, far less apologized. And don't just think "I forgive you", but speak it out loudly so you can hear your own voice. Even better, let also someone else hear it. 
 
-Call the person by name and shout it out loudly: “I don’t accuse you anymore! I forgive you! You are free!”
+Call the person by name and shout it out: “I don’t accuse you anymore! I forgive you! You are free!”
 
 **Step 3**
-The next step is to admit your own guilt. Yes, there is guilt with you, as well. In case you cannot think of anything to admit, at least admit your bitterness. Bitterness is sin. Again, do it loudly and in prayer to God. And be sure He will hear you and forgive you.
 
-He will heal you.
+The next step is to admit your own guilt. Yes, there is guilt with you, as well. In case you cannot think of anything to admit, at least admit your bitterness. Bitterness is sin. Again, do it loudly and in prayer to God. And be sure He will hear you and forgive you. He will heal you.
+
+And you are free.
