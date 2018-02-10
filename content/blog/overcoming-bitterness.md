@@ -4,16 +4,12 @@ date = 2018-02-14T03:01:45Z
 image = "overcoming bitterness.jpg"
 draft = "true"
 +++
-zzzz
-How can I obtain inner peace?
 
-I mean the kind of peace that endures everything. That is stronger than any negative experience you can think of. No matter what the circumstances. No matter what others did to you. No matter the lies, the hurt, and the deception.
+Bitterness is a killer.
 
-No matter the damage.
+Holding onto things hurts you more than anything else. Leaves you with a far greater damage than anything people can do to you. Bitterness steals your peace and breaks you down continuously. It kills you emotionally and spiritually.
 
-The door to inner peace is forgiveness. Holding onto things hurts you more than anything else. Leaves you with a far greater damage than anything people can do to you. Bitterness breaks you down continuously, kills you slowly.
-
-So what can you do in order to get peace? Here are a few steps:
+So what can you do in order to overcome? Here are a three steps:
 
 **Step 1**
 
@@ -21,21 +17,17 @@ Stop meditating on what happened. Stop accusing. Stop seeking revenge. Stop lame
 
 Just say, Stop!
 
-It’s a matter of a decision. Anyone can do it. You can do it, no matter what your feelings are at the moment. Once you take that decision, your feelings will follow.
+It starts with a decision. Anyone can do it. You can do it, no matter whose guilt it is, no matter what the damage is, and no matter what your feelings are at the moment. Once you take that decision, your feelings will follow.
 
 **Step 2**
+
+The next step is to forgive. 
+
+Yes, I mean it. That's the hardest part. You forgive, although the people who have done wrong against you never regretted what they did, far less apologized. And don't just think "I forgive you", but speak it out loud so you can hear your own voice. Even better, let also someone else hear you say it. 
 
 Call the person by name and shout it out loudly: “I don’t accuse you anymore! I forgive you! You are free!”
 
 **Step 3**
-Confess your own guilt. (Yes, there is guilt with you, as well.) Again, do it loudly. And be sure, God will hear you.
-And forgive you.
+The next step is to admit your own guilt. Yes, there is guilt with you, as well. In case you cannot think of anything to admit, at least admit your bitterness. Bitterness is sin. Again, do it loudly and in prayer to God. And be sure He will hear you and forgive you.
 
-**Step 4**
-However, there is one more step. He not only wants to heal your memories and your emotions, but give you peace with Him. He wants to reconcile you with Himself. You can ask Him for that and He will give you.
-
-If forgiveness is the door to inner peace, reconciliation with God is its foundation. Reconciliation is redemption. There is no better foundation for your life than the knowledge of being forgiven, accepted and loved by God. This gives you the quality of peace that is able to overcome all fear,even the fear of death.
-
-Peace with God will last for the rest of your life, and after that, all the way into eternity.
-
-So precious! Yet, so simple.
+He will heal you.
