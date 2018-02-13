@@ -7,7 +7,7 @@ draft = "true"
 
 Bitterness is a killer.
 
-Holding onto things hurts you more than anything else. Leaves you with a far greater damage than anything people can do to you. Bitterness steals your peace and breaks you down continuously. It kills you emotionally and spiritually.
+Holding onto accusations hurts you more than anything else. Leaves you with a far greater damage than anything people can do to you. Bitterness steals your peace and breaks you down continuously. It kills you emotionally and spiritually.
 
 So what can you do in order to overcome? Here are a three steps:
 
