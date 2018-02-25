@@ -1,15 +1,14 @@
 +++
-title = "Overcoming Bitterness - 3 Steps"
+title = "Overcoming Bitterness"
 date = 2018-02-14T03:01:45Z
 image = "overcoming bitterness.jpg"
-draft = "true"
 +++
 
 Bitterness is a killer.
 
-Holding onto accusations hurts you more than anything else. Leaves you with a far greater damage than anything people can do to you. Bitterness steals your peace and breaks you down continuously. It kills you emotionally and spiritually.
+Holding onto accusations hurts you more than anything else. Leaves you with a far greater damage than anything people can do to you. Bitterness steals your peace and breaks you down continuously. It kills you not only emotionally and spiritually, but also physically.
 
-So what can you do in order to overcome? Here are a three steps:
+So, what can you do in order to overcome? Here follow three steps:
 
 **Step 1**
 
@@ -33,6 +32,6 @@ Call the person by name and shout it out, I don’t accuse you anymore! I forgiv
 
 The third step is to admit your own guilt. 
 
-Yes, there is guilt with you, as well. In case you cannot think of anything to admit, at least admit your bitterness. Bitterness is sin. Again, do it loudly and in prayer. And be sure God will hear you and forgive you. He will heal your emotions.
+Yes, there is guilt with you, as well. In case you cannot think of anything to admit to this other person, at least admit your bitterness. Bitterness is sin. Again, do it loudly and in prayer. And be sure God will hear you and forgive you. He will heal you.
 
-And set you free. So precious!
+And YOU are free. So precious!
