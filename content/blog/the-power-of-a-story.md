@@ -14,7 +14,7 @@ This story tells us where we come from and what our purpose is, and it connects 
 
 It’s the story that tells us who we are.
 
-In order to fully unfold its beauty and its power, it best is told orally. Just knowing about it or being able to state its content does not give you the full experience. Writing it down and reading it word for word is a lot better, but still not quite the same as telling it orally. 
+In order to fully unfold its beauty and its power, it best is told orally. Just knowing about it or being able to state its content does not give you the full experience. Writing it down or reading it word by word is a lot better, but still not quite the same as listen to it as it is told orally. 
 
 In order to experience the power of the story, you may have to catch its unwritten values, beliefs, convictions, experiences… 
 
