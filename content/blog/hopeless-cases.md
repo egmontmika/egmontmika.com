@@ -24,6 +24,6 @@ If we want to see real change, we need to address a deeper level of consciousnes
 
 And beliefs.
 
-Jesus would never call anyone a hopeless case, far less start an argument on that level. Instead, he would aim at a higher purpose and people from the inside.
+Jesus wouldn't call anyone a hopeless case, far less start an argument on that level. Instead, he would aim at a higher purpose and people from the inside.
 
 By touching their heart.
