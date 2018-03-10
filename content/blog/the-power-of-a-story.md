@@ -21,7 +21,7 @@ You may want to capture its spirit.
 
 Therefore, nothing matches up to listening to someone who tells the story orally and with conviction, who not only knows it by heart but loves it and has incorporated it into his or her own beliefs. Someone who has aligned with its spirit.
 
-Then, the story truly becomes alive.
+Then, the story becomes alive.
 
 Then, this story enables us to transcend beyond our self-imposed differences, peering into a more fundamental realm of our existence, one more intrinsic to our nature than many of our rationalistic attempts to understand what human life is all about.
 
