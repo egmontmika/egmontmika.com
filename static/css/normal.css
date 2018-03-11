@@ -39,12 +39,11 @@ color:black;
 }
 /*Right column: Bisherige Artikel etc*/
 body > main > aside {
-  background-color: rgba(228, 228, 228, 1);
+  background-color: rgb(220, 220, 221);
   Padding-top: 2em;
   Padding-left: 1em;
   Padding-right: 1em;
   Padding-bottom: 3em;
-  background-color: rgba(188, 188, 188, 1);
 
 }
 body > main > aside > h1 {
