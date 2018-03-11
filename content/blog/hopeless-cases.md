@@ -1,28 +1,22 @@
 +++
-title = "Hopeless Cases?"
+title = "A Hopeless Case?"
 date = "2018-03-14T22:44:14Z"
 image = "hopeless cases.png"
 +++
 
-Why are there people who never seem to learn? 
+Why do some people never seem to learn? 
 
 Who always keep their toothpaste open, leave their dirty cup in the sink, spit their chewing gum just anywhere, never pick up litter, or take out the trash. 
 
-Why can’t they learn? Is it because they don’t know better? Is ignorance the problem?
+Why can’t they learn? Is it because they don’t know better? In this case, the solution would be to inform them that this behavior is not acceptable.
 
-In this case, it would be easy to inform them that this behavior is not acceptable. That would solve the problem.
+However, not knowing rarely is the reason. You may call it an attitude. These people just don’t care. They don't care for what we care. They have other values and preferences. 
 
-However, not knowing rarely is the reason. These people just don’t care. 
+So, how can you change someone's preferences? 
 
-It’s an attitude. 
+Some of us would say, It's impossible, and call it a hopeless case. And we may be right if expecting the shift to happen on the spot. Pointing a finger, though, seldom changes someone's attitude or preferences; at best you will get a hypocrite. 
 
-So, how can you change someone’s attitude? How can you make them care for what you care?
-
-Some of us would say "never" and call them hopeless cases. And we may be right if expecting the shift to happen on the spot. Pointing a finger, though, seldom changes an attitude; at best you will get a hypocrite. 
-
-If we want to see real change, we need to address a deeper level of consciousness. We will have to engage and teach and communicate in a way that shares emotions and values. 
-
-And beliefs.
+If we want to see real change, we need to address a deeper level of consciousness. We will have to engage and teach and communicate in a way that shares our emotions, insights, values, and beliefs.
 
 Jesus wouldn't call anyone a hopeless case, far less start an argument on that level. Instead, he would aim at changing people from the inside. And for a higher purpose than just raising their outward behavior.
 
