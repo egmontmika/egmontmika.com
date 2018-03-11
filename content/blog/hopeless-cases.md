@@ -1,7 +1,7 @@
 +++
 title = "Hopeless Cases?"
 date = "2018-03-14T22:44:14Z"
-image = "a heart decision.jpg"
+image = "hopeless cases.png"
 +++
 
 Why are there people who never seem to learn? 
@@ -12,7 +12,7 @@ Why can’t they learn? Is it because they don’t know better? Is ignorance the
 
 In this case, it would be easy to inform them that this behavior is not acceptable. That would solve the problem.
 
-However, not knowing is hardly the reason. These people just don’t care. 
+However, not knowing rarely is the reason. These people just don’t care. 
 
 It’s an attitude. 
 
@@ -24,6 +24,6 @@ If we want to see real change, we need to address a deeper level of consciousnes
 
 And beliefs.
 
-Jesus wouldn't call anyone a hopeless case, far less start an argument on that level. Instead, he would aim at changing people from the inside. And for a higher purpose than raising their moral standard.
+Jesus wouldn't call anyone a hopeless case, far less start an argument on that level. Instead, he would aim at changing people from the inside. And for a higher purpose than just raising their outward behavior.
 
-By touching their heart.
+He would touch their heart.
