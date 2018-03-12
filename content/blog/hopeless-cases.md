@@ -4,13 +4,13 @@ date = "2018-03-14T22:44:14Z"
 image = "hopeless cases.png"
 +++
 
-Why do some people never seem to learn? 
+Why do some people never learn? 
 
-Who always keep their toothpaste open, leave their dirty cup in the sink, spit their chewing gum just anywhere, never pick up litter, or take out the trash. 
+Who keep their toothpaste open, leave their dirty cup in the sink, spit their chewing gum just anywhere, never pick up litter, or take out the trash. 
 
-Why can’t they learn? Is it because they don’t know better? In this case, the solution would be to inform them that this behavior is not acceptable and show them how to do better.
+Do they not know better? In this case, the solution would be to inform them that this behavior is not acceptable and show them how to do it.
 
-However, not knowing rarely is the reason. You may call it an attitude. These people just don’t care. They don't care for what we care. They have other values and preferences. 
+However, not knowing rarely is the reason. You may call it an attitude. These people just don’t care. They don't care for what you care. They have other values and preferences. 
 
 So, how can you change someone's preferences? 
 
