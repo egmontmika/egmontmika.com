@@ -1,7 +1,7 @@
 
 +++
 title = "Life and Death in Your Hands"
-date = 2018-04-03T03:01:45Z
+date = "2018-04-03T03:01:45Z"
 image = "life and death in your hands.png"
 +++
 You can’t save the whole world. 
