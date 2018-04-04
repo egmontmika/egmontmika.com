@@ -4,7 +4,7 @@ body > main > section > article > header > h1 {
   font-weight: 600;
   color: rgba(2, 150, 2, 1);
   line-height: 1.8em;
-  padding-bottom: 0em;
+  padding-bottom: 0.8em;
   margin-bottom: -0.8em;
 }
 body > main > section > article > header > p {
