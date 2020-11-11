@@ -15,3 +15,8 @@ Here is a short description from the foreword by Roger Thoman, Appleseed Ministr
 > If you hunger for more than your current church-going experience, this book will point you toward a life of becoming a disciple of Jesus who learns the most exciting vocation of all: making others to be disciples of Jesus."
 
 Read the [introduction](../../book-introduction).
+
+Start reading the book [here](https://read.amazon.com/kp/embed?asin=B08MCN8TK6&preview=newtab&linkCode=kpe&ref_=cm_sw_r_kb_dp_VvfRFbA18XVAC).
+
+Order the book at [Amazon](https://www.amazon.com/gp/product/B08MCN8TK6?pf_rd_r=18VP3SDTM7J5R5W6NB4F&pf_rd_p=6fc81c8c-2a38-41c6-a68a-f78c79e7253f).
+
