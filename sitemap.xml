@@ -1,5 +1,16 @@
-<?xml version="1.0" encoding="utf-8" standalone="yes" ?>
-<urlset xmlns="http://www.sitemaps.org/schemas/sitemap/0.9">
+<?xml version="1.0" encoding="utf-8" standalone="yes"?>
+<urlset xmlns="http://www.sitemaps.org/schemas/sitemap/0.9"
+  xmlns:xhtml="http://www.w3.org/1999/xhtml">
+  
+  <url>
+    <loc>http://egmontmika.com/blog/</loc>
+    <lastmod>2018-04-22T06:39:19+00:00</lastmod>
+  </url>
+  
+  <url>
+    <loc>http://egmontmika.com/</loc>
+    <lastmod>2018-04-22T06:39:19+00:00</lastmod>
+  </url>
   
   <url>
     <loc>http://egmontmika.com/blog/request/</loc>
@@ -47,7 +58,7 @@
   </url>
   
   <url>
-    <loc>http://egmontmika.com/blog/his%20ways/</loc>
+    <loc>http://egmontmika.com/blog/his-ways/</loc>
     <lastmod>2017-12-06T03:01:45+00:00</lastmod>
   </url>
   
@@ -92,7 +103,7 @@
   </url>
   
   <url>
-    <loc>http://egmontmika.com/blog/don%27t-go-to-church/</loc>
+    <loc>http://egmontmika.com/blog/dont-go-to-church/</loc>
     <lastmod>2017-05-23T03:01:45+00:00</lastmod>
   </url>
   
@@ -247,7 +258,7 @@
   </url>
   
   <url>
-    <loc>http://egmontmika.com/blog/how%20much%20worth%20are%20your%20ideas/</loc>
+    <loc>http://egmontmika.com/blog/how-much-worth-are-your-ideas/</loc>
     <lastmod>2016-01-20T06:39:19+00:00</lastmod>
   </url>
   
@@ -327,12 +338,12 @@
   </url>
   
   <url>
-    <loc>http://egmontmika.com/blog/what%27s-the-perfect-church/</loc>
+    <loc>http://egmontmika.com/blog/whats-the-perfect-church/</loc>
     <lastmod>2015-04-15T06:39:19+00:00</lastmod>
   </url>
   
   <url>
-    <loc>http://egmontmika.com/blog/faith-isn%27t-religion/</loc>
+    <loc>http://egmontmika.com/blog/faith-isnt-religion/</loc>
     <lastmod>2015-04-01T06:39:19+00:00</lastmod>
   </url>
   
@@ -342,12 +353,12 @@
   </url>
   
   <url>
-    <loc>http://egmontmika.com/blog/don%27t-work-for-god/</loc>
+    <loc>http://egmontmika.com/blog/dont-work-for-god/</loc>
     <lastmod>2015-03-04T03:01:45+00:00</lastmod>
   </url>
   
   <url>
-    <loc>http://egmontmika.com/blog/just-do-it%21/</loc>
+    <loc>http://egmontmika.com/blog/just-do-it/</loc>
     <lastmod>2015-02-18T03:01:45+00:00</lastmod>
   </url>
   
@@ -496,15 +507,11 @@
   </url>
   
   <url>
-    <loc>http://egmontmika.com/blog/</loc>
-    <lastmod>2018-04-22T06:39:19+00:00</lastmod>
-    <priority>0</priority>
+    <loc>http://egmontmika.com/categories/</loc>
   </url>
   
   <url>
-    <loc>http://egmontmika.com/</loc>
-    <lastmod>2018-04-22T06:39:19+00:00</lastmod>
-    <priority>0</priority>
+    <loc>http://egmontmika.com/tags/</loc>
   </url>
   
 </urlset>
