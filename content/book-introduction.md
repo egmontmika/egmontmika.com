@@ -59,7 +59,11 @@ Chapters 6-9 describe what a disciple of Jesus is, and how we can translate that
 Finally, I am wrapping up the message of this book in its shortest possible form.
 
 ### Appendices
-There are three appendices. In Appendix 1, I tell the story of how I was born again and reached the starting point as a disciple of Jesus. It will give you an understanding of my background and the reason why I wrote this book.
+There are three appendices. 
+
+In Appendix 1, I tell the story of how I was born again and reached the starting point as a disciple of Jesus. It will give you an understanding of my background and the reason why I wrote this book.
+
 Appendix 2 is a collection of Bible passages referred to in the articles.
+
 Appendix 3 contains a list of resources on missional discipleship and disciple community that have been helpful to me and that I recommend.
 
