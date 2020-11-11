@@ -12,9 +12,7 @@ So how can we know better? The short and simple answer is, it needs to be discer
 
 Our problem is that spiritual reality is not measurable the way we are used to measure things. The kernel of discipleship lies outside the institutional and cultural paradigm. Discipleship is not only more than membership, it is completely different. It belongs to the spiritual realm, and cannot be identified by surface criteria, like formal membership, jargon or conduct. 
 
-Our spiritual perception is easily blurred, because we get lured by what we perceive with our natural senses. And we are easily impressed by what we consider "good fruit", like a church's growing membership and high weekly attendance.
-
-Perhaps we know people whom we regard as disciples, but who are really not. On the other hand, we may meet someone whom we regard as not being a disciple, but this person actually is. Our spiritual perception is easily blurred, because we get lured by what we perceive with our natural senses. 
+Perhaps we know people whom we regard as disciples, but who are really not. On the other hand, we may meet someone whom we regard as not being a disciple, but this person actually is. Our spiritual perception is easily blurred, because we get lured by what we perceive with our natural senses. And we are easily impressed by what we consider "good fruit", like a church's growing membership and high weekly attendance.
 
 “Man looks at the outward appearance, but the Lord looks at the heart.” (1 Sam 16,7)
 
