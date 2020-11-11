@@ -13,3 +13,5 @@ Here is a short description from the foreword by Roger Thoman, Appleseed Ministr
 > "This book gives a sharp diagnosis of the church today and the typical churchgoer who is going through the motions of religion. But it is more than just a critique of institutional forms of church. It provides a pathway for anyone who wants to move from sitting to going and from a place of living in comfort-zone to the spiritual adventure of following Jesus. Turning Missional clearly identifies the emotional and spiritual obstacles to becoming missional disciples and helps anyone interested to overcome these pitfalls and move forward. It provides a blueprint for actually walking out the reality of a life that is devoted to the things that grip the heart of God.
 
 > If you hunger for more than your current church-going experience, this book will point you toward a life of becoming a disciple of Jesus who learns the most exciting vocation of all: making others to be disciples of Jesus."
+
+Read the [introduction](../../book-introduction).
