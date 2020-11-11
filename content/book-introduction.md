@@ -52,7 +52,7 @@ The first three chapters contain a diagnosis of the churchgoer culture, the chur
 ### Part 2 - The Transition
 Chapters 4 and 5 offer suggestions as to how we can make the transition from churchgoer to missional disciple. How can we reassess our values and priorities? What are the mental and spiritual challenges that disciplers can expect and how can we overcome?
 
-### Part 3 - Missional discipleship.
+### Part 3 - Missional Discipleship
 Chapters 6-9 describe what a disciple of Jesus is, and how we can translate that into everyday life. What are the mental and spiritual qualities that form us into better disciple-makers? What is the discipling process like? How can we develop a way that works for us, and how can we get started? The last chapter offers a glimpse into the natural outcome of disciple-making, a community of disciples.
 
 ### Conclusion
