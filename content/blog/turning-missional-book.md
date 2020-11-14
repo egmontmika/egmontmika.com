@@ -6,7 +6,9 @@ image = "IMG_7765.jpeg"
 
 Hi friends!
 
-Those who used to read my blog posts may have wondered why I stopped writing  more than two years ago. The reason is that I during the process of writing blog posts came to the conviction that I should write a book instead. A book on missional discipleship. Now the book is finished and available on [Amazon](https://www.amazon.com/gp/product/B08MCN8TK6?pf_rd_r=18VP3SDTM7J5R5W6NB4F&pf_rd_p=6fc81c8c-2a38-41c6-a68a-f78c79e7253f).
+It's been quite a while since I published my last post on this blog. Here is what happened: During the process of writing blog posts I came to the conviction that I should write a book instead; a book with a unique focus: The transition from living a churchgoer life to becoming a missional disciple of Jesus. 
+
+Now the book is published. It's available on [Amazon.com](https://www.amazon.com/gp/product/B08MCN8TK6?pf_rd_r=18VP3SDTM7J5R5W6NB4F&pf_rd_p=6fc81c8c-2a38-41c6-a68a-f78c79e7253f) and on all other national Amazon marketplaces.
 
 Here is a short description from the foreword by Roger Thoman, Appleseed Ministry Group:
 
@@ -14,9 +16,14 @@ Here is a short description from the foreword by Roger Thoman, Appleseed Ministr
 
 > If you hunger for more than your current church-going experience, this book will point you toward a life of becoming a disciple of Jesus who learns the most exciting vocation of all: making others to be disciples of Jesus."
 
-Read the [introduction](../../book-introduction).
+Does that make you courious? Then you may want to click [here](https://read.amazon.com/kp/embed?asin=B08MCN8TK6&preview=newtab&linkCode=kpe&ref_=cm_sw_r_kb_dp_VvfRFbA18XVAC) and get free access to the forword, the introduction, the table of contents, and the first articles.
 
-Start reading the book [here](https://read.amazon.com/kp/embed?asin=B08MCN8TK6&preview=newtab&linkCode=kpe&ref_=cm_sw_r_kb_dp_VvfRFbA18XVAC).
+Best wishes
+Egmont
 
-Order the book at [Amazon](https://www.amazon.com/gp/product/B08MCN8TK6?pf_rd_r=18VP3SDTM7J5R5W6NB4F&pf_rd_p=6fc81c8c-2a38-41c6-a68a-f78c79e7253f).
+
+
+### Start reading the book [here](https://read.amazon.com/kp/embed?asin=B08MCN8TK6&preview=newtab&linkCode=kpe&ref_=cm_sw_r_kb_dp_VvfRFbA18XVAC).
+
+### Order the book from [Amazon](https://www.amazon.com/gp/product/B08MCN8TK6?pf_rd_r=18VP3SDTM7J5R5W6NB4F&pf_rd_p=6fc81c8c-2a38-41c6-a68a-f78c79e7253f).
 
