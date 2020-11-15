@@ -18,7 +18,8 @@ Here is a short description from the foreword by Roger Thoman, founder and leade
 
 > If you hunger for more than your current church-going experience, this book will point you toward a life of becoming a disciple of Jesus who learns the most exciting vocation of all: making others to be disciples of Jesus."
 
-Does that make you curious? Then you may want to click [here](https://read.amazon.com/kp/embed?asin=B08MCN8TK6&preview=newtab&linkCode=kpe&ref_=cm_sw_r_kb_dp_VvfRFbA18XVAC) and get free access to the forword, the introduction, the table of contents, and the first articles.
+Does that make you curious? Then you may want to click [here](https://read.amazon.com/kp/embed?asin=B08MCN8TK6&preview=newtab&linkCode=kpe&ref_=cm_sw_r_kb_dp_VvfRFbA18XVAC) and get free access to the foreword, the introduction, the table of contents, and the first articles.
+
 
 Best wishes
 Egmont
