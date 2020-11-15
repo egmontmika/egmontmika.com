@@ -1,7 +1,7 @@
 +++
 title = "New Book - Turning Missional"
 date = 2020-11-11T03:01:45Z
-image = "IMG_7765.jpeg"
+image = "IMG_7762.jpeg"
 +++
 
 Hi friends!
