@@ -8,9 +8,9 @@ Hi friends!
 
 It's been a while since I published my last post on this blog. Here is what happened: 
 
-During the process of writing I increasingly came to the conviction that I should write a book with one unique focus. It's the question, How can we as churchgoers become missional disciples of Jesus? How can we step beyond church programmes and on a personal level start living an everyday missional life? 
+During the process of writing I increasingly came to the conviction that I should write a book with one narrow, unique focus. It's the question, How can we as churchgoers become missional disciples of Jesus? How can we step beyond church programmes and on a personal level start living an everyday missional life? 
 
-The book is now published and available on [Amazon.com](https://www.amazon.com/gp/product/B08MCN8TK6?pf_rd_r=18VP3SDTM7J5R5W6NB4F&pf_rd_p=6fc81c8c-2a38-41c6-a68a-f78c79e7253f) and on all other national Amazon marketplaces.
+The book is now published and available on [Amazon.com](https://www.amazon.com/gp/product/B08MCN8TK6?pf_rd_r=18VP3SDTM7J5R5W6NB4F&pf_rd_p=6fc81c8c-2a38-41c6-a68a-f78c79e7253f) and in all other national Amazon marketplaces, like [amazon.co.uk](https://www.amazon.co.uk/Turning-Missional-Through-Churchgoer-Mentality/dp/B08LG3HV8Q/ref=sr_1_1?dchild=1&keywords=turning+missional&qid=1605430562&sr=8-1,[amazon.de](https://www.amazon.de/gp/product/B08MCN8TK6?pf_rd_r=MBWKREPS9XKXYH9NCMBF&pf_rd_p=e74560f2-413d-4879-8f94-12e0d76ee953&pd_rd_r=37f3f5f1-9868-4b50-a73d-1d28932eaa5f&pd_rd_w=yd3aX&pd_rd_wg=jtGQ6&ref_=pd_gw_unk), [amazon.se](https://www.amazon.se/Turning-Missional-Through-Churchgoer-Mentality/dp/B08LG3HV8Q/ref=sr_1_1?dchild=1&keywords=turning+missional&qid=1605430167&sr=8-1)and so on.
 
 Here is a short description from the foreword by Roger Thoman, founder and leader of Appleseed Ministry Group:
 
@@ -18,14 +18,14 @@ Here is a short description from the foreword by Roger Thoman, founder and leade
 
 > If you hunger for more than your current church-going experience, this book will point you toward a life of becoming a disciple of Jesus who learns the most exciting vocation of all: making others to be disciples of Jesus."
 
-Does that make you courious? Then you may want to click [here](https://read.amazon.com/kp/embed?asin=B08MCN8TK6&preview=newtab&linkCode=kpe&ref_=cm_sw_r_kb_dp_VvfRFbA18XVAC) and get free access to the forword, the introduction, the table of contents, and the first articles.
+Does that make you curious? Then you may want to click [here](https://read.amazon.com/kp/embed?asin=B08MCN8TK6&preview=newtab&linkCode=kpe&ref_=cm_sw_r_kb_dp_VvfRFbA18XVAC) and get free access to the forword, the introduction, the table of contents, and the first articles.
 
 Best wishes
 Egmont
 
 
 
-#### Start reading the book by clicking [here](https://read.amazon.com/kp/embed?asin=B08MCN8TK6&preview=newtab&linkCode=kpe&ref_=cm_sw_r_kb_dp_VvfRFbA18XVAC).
+##### Start reading the book by clicking [here](https://read.amazon.com/kp/embed?asin=B08MCN8TK6&preview=newtab&linkCode=kpe&ref_=cm_sw_r_kb_dp_VvfRFbA18XVAC).
 
-#### Order the book [here](https://www.amazon.com/gp/product/B08MCN8TK6?pf_rd_r=18VP3SDTM7J5R5W6NB4F&pf_rd_p=6fc81c8c-2a38-41c6-a68a-f78c79e7253f).
+##### Order the book [here](https://www.amazon.com/gp/product/B08MCN8TK6?pf_rd_r=18VP3SDTM7J5R5W6NB4F&pf_rd_p=6fc81c8c-2a38-41c6-a68a-f78c79e7253f).
 
